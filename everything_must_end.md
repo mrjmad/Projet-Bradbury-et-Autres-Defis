@@ -45,7 +45,7 @@ Il a vomi sa bière. À quatre pattes, il se traîne sur la route, s'y couche.
 « S'il vous plait... »
 Il attend, les bras en croix sur le bitume, espère entendre un moteur.
 
-Il sort de la station Fulton Street. Le café où il a rendez-vous est à deux pas. Sa nuit sur la route n'a presque pas laissé de trace, seulement quelques écorchures sur la joue et les poignets. Bah si il me demande, je dirais que l'on a essayé de me voler hier soir.
+Il sort de la station Fulton Street. Le café où il a rendez-vous est à deux pas. Sa nuit sur la route n'a presque pas laissé de trace, seulement quelques écorchures sur la joue et les poignets. Bah s'il me demande, je dirais que l'on a essayé de me voler hier soir.
 
 18 Juillet. Il s'assoit, commande une boisson dont il n'arrive même pas à prononcer le nom correctement et attend. Un jeune homme, un brushing et mocassin comme il les appelle, entre. Le brushing double-cligne des yeux et parcoure la salle en articulant quelques mots.
 Encore un augmenté qui s'est fait greffer de la merde directement sous la peau...
