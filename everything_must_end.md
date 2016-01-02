@@ -66,7 +66,7 @@ Une dizaine d'ingénieurs totalement paniqués et qui pourraient tous être ses 
 
 On lui trouve finalement un bureau. En fait du bureau, on lui alloue tout simplement un open space que l'on vide de tous ses informaticiens. Le jeune chef de projet, Lloyd, avait dit vrai, il n'existe plus de bureau d'informaticien.
 
-Il a presque oublié que les claviers ont perdu quelques touches depuis 2022. Même si les grandes entreprises peuvent payer à l'état des licences de certification leur permettant de former et de faire travailler des informaticiens, les choses ne sont plus comme avant. Les informaticiens certifiés sont comme des fées à qui on auraient coupé les ailes. Il a heureusement pensé à amener un vrai clavier. Rien que posséder un tel clavier peut le renvoyer en prison, mais il y a de moins en moins de contrôle. 21 ans après la promulgation de loi, il n'y a après tout plus vraiment d'informaticiens illégaux à pourchasser.
+Il a presque oublié que les claviers ont perdu quelques touches depuis 2022. Même si les grandes entreprises peuvent payer à l'état des licences de certification leur permettant de former et de faire travailler des informaticiens, les choses ne sont plus comme avant. Les informaticiens certifiés sont comme des fées à qui on aurait coupé les ailes. Il a heureusement pensé à amener un vrai clavier. Rien que posséder un tel clavier peut le renvoyer en prison, mais il y a de moins en moins de contrôle. 21 ans après la promulgation de loi, il n'y a après tout plus vraiment d'informaticiens illégaux à pourchasser.
 
 Il se met au travail.
 
