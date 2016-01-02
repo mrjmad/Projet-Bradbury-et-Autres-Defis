@@ -22,7 +22,7 @@ Il pousse la porte du bar. La musique, du vieux blues comme il aime, le salue de
 « Voila qui fait plaisir à entendre »
 
 Le patron repart s'occuper de son zinc. B fait durer sa pinte. Mais quelle que soit la taille du verre, arrive toujours le moment où il se retrouve vide. Heureusement, Dieu a inventé les barmans. Et son verre est de nouveau plein. La musique le tire vers ses souvenirs, son passé. Plusieurs pintes subissent le même tragique sort que la première.
-« Et toi, est-ce que le match de 2030 du Brésil n'est pas le meilleur match des 100 dernières années  ? »
+« Hé toi, est-ce que le match de 2030 du Brésil n'est pas le meilleur match des 100 dernières années  ? »
 B sursaute, relève le nez de ses souvenirs et de sa pinte. Deux jeunes qu'il n'a jamais vu avant sont attablés au zinc et discutent avec George et deux autres habitués.
 « Ne fais pas attention B, c'est Jester, mon neveu, il passe parfois et il est bien trop fan de foot pour son propre bien » lance le patron en finissant de laver des pintes.
 « Non mais Tonton, il sera de mon avis, tu verra, alors monsieur B, le match de 2030? »
