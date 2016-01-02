@@ -70,7 +70,7 @@ Il a presque oublié que les claviers ont perdu quelques touches depuis 2022. M�
 
 Il se met au travail.
 
-23 Juillet. Il piétine. Le système expert est construit de bric et de broc, sans aucune élégance, assemblage de bouts de code à peine compris, mais il devrait fonctionner.
+23 juillet. Il piétine. Le système expert est construit de bric et de broc, sans aucune élégance, assemblage de bouts de code à peine compris, mais il devrait fonctionner.
 
 23 juillet, chez lui, sur son toit. Il pleut. Le muret est glissant. Il se tient fermement à son ami le piquet. 23 juillet, il appuie trois fois sur suivant. Il retient son souffle. *« Ohh, can't anybody see... »* Il recommence à respirer pendant que *Roads* de *Portishead* déroule ses notes tristes. 34 sur 1716 affiche son vieil Ipod. La chanson se termine, avant que la suivante ne commence, il appuie sur stop et rentre chez lui.
 
