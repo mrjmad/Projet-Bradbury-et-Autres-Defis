@@ -72,7 +72,7 @@ Il se met au travail.
 
 23 juillet. Il piétine. Le système expert est construit de bric et de broc, sans aucune élégance, assemblage de bouts de code à peine compris, mais il devrait fonctionner.
 
-23 juillet, chez lui, sur son toit. Il pleut. Le muret est glissant. Il se tient fermement à son ami le piquet. 23 juillet, il appuie trois fois sur suivant. Il retient son souffle. *« Ohh, can't anybody see... »* Il recommence à respirer pendant que *Roads* de *Portishead* déroule ses notes tristes. 34 sur 1716 affiche son vieil Ipod. La chanson se termine, avant que la suivante ne commence, il appuie sur stop et rentre chez lui.
+23 juillet, chez lui, sur son toit. Il pleut. Le muret est glissant. Il se tient fermement à son ami le piquet. 23 juillet, il appuie trois fois sur suivant. Il retient son souffle. *« Ohh, can't anybody see... »* Il recommence à respirer pendant que *Roads* de *Portishead* déroule ses notes tristes. 34 sur 1716 affiche son vieil Ipod. La chanson se termine, avant que la suivante ne commence, il appuie sur *stop* et rentre chez lui.
 
 Lloyd passe parfois le voir pendant qu'il tente de trouver la panne du système. Habituellement il n'aime pas parler avec les informaticiens autorisés qu'il croise. Ils ont tous été formés avec des bouts de savoir, de la connaissance expurgée de ce qui fait la beauté de l'informatique. On ne leur apprend pas à innover, à inventer mais simplement à réutiliser des bouts de recettes qui datent d'il y a bientôt trente ans.
 
@@ -107,7 +107,7 @@ Soudain il a froid, il tremble. Il fait comme si cela ne l'intéressait pas. Il 
 
 Chez lui. Lloyd. Le jeune fou n'a pu s'en empêcher. Il pleure.
 
-14 septembre à l'aube. Il n'a pas dormi de la nuit. Il regarde l'aube se lever. Si tôt, tout à l'air si paisible, si propre. 14, il appuie quatre fois sur suivant. La musique commence. Il la reconnaît *« Why do you walk in the dark?  ….Do you pray for the the day? »* L'écran de l'ipod affiche *Everything Must End - Client.* 13 sur 1716.
+14 septembre à l'aube. Il n'a pas dormi de la nuit. Il regarde l'aube se lever. Si tôt, tout à l'air si paisible, si propre. 14, il appuie quatre fois sur *suivant*. La musique commence. Il la reconnaît *« Why do you walk in the dark?  ….Do you pray for the the day? »* L'écran de l'ipod affiche *Everything Must End - Client.* 13 sur 1716.
 
 Il fait un pas en avant.
 
