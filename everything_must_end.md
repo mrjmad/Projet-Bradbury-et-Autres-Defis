@@ -42,7 +42,7 @@ Il pleure, par terre, la joue contre le mur.
 Il veut se battre, il refuse de tout perdre. Il traverse une frontière, avec sa famille. Résistance des mots. Il continue à utiliser son clavier, pour vivre, pour tenter comme tant d'autres, de faire cesser cette folie. 18 novembre 2023. L'arrestation, les coups, les larmes de sa fille.
 
 Il a vomi sa bière. À quatre pattes, il se traîne sur la route, s'y couche.
-« S'il vous plait »
+« S'il vous plait... »
 Il attend, les bras en croix sur le bitume, espère entendre un moteur.
 
 Il sort de la station Fulton Street. Le café où il a rendez-vous est à deux pas. Sa nuit sur la route n'a presque pas laissé de trace, seulement quelques écorchures sur la joue et les poignets. Bah si il me demande, je dirais que l'on a essayé de me voler hier soir.
