@@ -33,7 +33,7 @@ B soupire, « Utilisation interdite d'outil de développement informatique »
 « Non, je voulais juste garder ma vie d'avant les lois de 2022, garder mon boulot et je me suis fais attraper. »
 B se lève, signifiant implicitement que la discussion était finie. Le sol tangue un peu, mais ce n'est pas si terrible que cela. Il juge toutefois plus prudent de laisser la dernière pinte vide sur la table. Tenter de la ramener sur le zinc semblait pour le moins risqué pour son intégrité de pinte.
 « George tu le mets sur ma note, je vais avoir une rentrée, là, bientôt, ok ?»
-« Comme d'hab B, tu paieras quand tu pourras »
+« Comme d'hab B, tu paieras quand tu pourras. »
 
 Entre le 17 et le 18 Juillet. Il marche lentement sur Union Avenue. La nuit est toujours aussi chaude malgré l'heure avancée. Les étoiles brillent et lui zigzague légèrement. Ce petit con a fait remonter les mauvais souvenirs. Ceux qu'il ne veut pas revivre. Il se revoit il y a si longtemps. Son entreprise de consulting en système expert et expert data scientist fonctionnait bien. Il habitait encore en France, avec sa femme et sa fille. Il trébuche sur un trou dans le trottoir, tente de se rattraper, se cogne dans un mur, s'effondre le long de celui-ci, reste au sol. Les souvenirs se pressent. Sa fille, ses joies. Et puis l'événement. Les choses qui s'accélèrent, les responsables politiques qui légifèrent. L'informatique et l'internet sont devenus hors de contrôle déclament-ils partout. Il faut remédier à cela. Il faut interdire.
 
