@@ -87,7 +87,7 @@ Lloyd passe parfois le voir pendant qu'il tente de trouver la panne du système.
 Normalement il ne dévoile jamais les solutions qu'il a mis en place. Mais là, il est trop fier et puis il aime bien le jeunot.
 « Le problème n'était pas dans le code » répond alors B
 « Mais alors où ? »
-« C'est tout simple, votre système expert cherche des indices de catastrophes pour pouvoir les prédire. Il fait cela depuis des années, des catastrophes encore et encore. Incendies, guerre, inondation, tueur en série, encore et toujours. Il avait simplement attrapé une grosse déprime »
+« C'est tout simple, votre système expert cherche des indices de catastrophes pour pouvoir les prédire. Il fait cela depuis des années, des catastrophes, encore et encore. Incendies, guerre, inondation, tueur en série, encore et toujours. Il avait simplement attrapé une grosse déprime »
 « Mais un programme ne peut pas être déprimé !»
 « Peut-être, ou peut-être pas, en tout cas le vôtre, oui »
 « Et vous avez fait quoi alors ? Vous lui avez raconté une blague »
