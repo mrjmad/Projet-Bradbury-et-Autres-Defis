@@ -28,8 +28,8 @@ B sursaute, relève le nez de ses souvenirs et de sa pinte. Deux jeunes qu'il n'
 « Non mais Tonton, il sera de mon avis, tu verras, alors monsieur B, le match de 2030 ? »  
 « Je ne sais pas, je n'aime pas le sport et en 2030, j'étais en prison, alors ... »  
 « En prison ? T'avais fait quoi pour aller derrière les barreaux ? »  
-B soupire, « Utilisation interdite d'outil de développement informatique »  
-« Quoi tu veux dire que t'étais un terroriste, que tu faisais exploser des trucs avec ton clavier  ? »  
+B soupire, « Utilisation interdite d'outil de développement informatique. »  
+« Quoi tu veux dire que t'étais un terroriste, que tu faisais exploser des trucs avec ton clavier ? »  
 « Non, je voulais juste garder ma vie d'avant les lois de 2022, garder mon boulot et je me suis fait attraper. »  
 B se lève, signifiant implicitement que la discussion était finie. Le sol tangue un peu, mais ce n'est pas si terrible que cela. Il juge toutefois plus prudent de laisser la dernière pinte vide sur la table. Tenter de la ramener sur le zinc semblait pour le moins risqué pour son intégrité de pinte.  
 « George tu le mets sur ma note, je vais avoir une rentrée, là, bientôt, ok ?»  
