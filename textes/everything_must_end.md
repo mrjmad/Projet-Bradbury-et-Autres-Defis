@@ -85,17 +85,17 @@ Lloyd passe parfois le voir pendant qu'il tente de trouver la panne du système.
 3 août, le système fonctionne à nouveau. Il supprime tout ce qu'il a pu installer sur le poste qu'il a utilisé. Il sait que l'entreprise va auditer son poste de travail espérant qu'il y a oublié des bouts de programmes ou des connaissances qu'elle pourra réutiliser. Tout est propre, il est temps.  
 « Comment avez-vous fait ? Quel était le problème ? » Lloyd l'attendait devant l'ascenseur.  
 Normalement il ne dévoile jamais les solutions qu'il a mis en place. Mais là, il est trop fier et puis il aime bien le jeunot.  
-« Le problème n'était pas dans le code » répond alors B  
+« Le problème n'était pas dans le code. » répond alors B.  
 « Mais alors où ? »  
-« C'est tout simple, votre système expert cherche des indices de catastrophes pour pouvoir les prédire. Il fait cela depuis des années, des catastrophes, encore et encore. Incendies, guerre, inondation, tueur en série, encore et toujours. Il avait simplement attrapé une grosse déprime »  
+« C'est tout simple, votre système expert cherche des indices de catastrophes pour pouvoir les prédire. Il fait cela depuis des années, des catastrophes, encore et encore. Incendies, guerres, inondations, tueurs en série, encore et toujours. Il avait simplement attrapé une grosse déprime. »  
 « Mais un programme ne peut pas être déprimé !»  
-« Peut-être, ou peut-être pas, en tout cas le vôtre, oui »  
-« Et vous avez fait quoi alors ? Vous lui avez raconté une blague »  
-« Presque, je lui ai offert l'intégrale d'une bande dessinée humoristique des années 2010, Dilbert. Et j'ai ajouté une routine pour qu'automatiquement il en lise quelques uns, tout les jours »  
+« Peut-être, ou peut-être pas, en tout cas le vôtre, oui. »  
+« Et vous avez fait quoi alors ? Vous lui avez raconté une blague. »  
+« Presque, je lui ai offert l'intégrale d'une bande dessinée humoristique des années 2010, Dilbert. Et j'ai ajouté une routine pour qu'automatiquement il en lise quelques uns, tous les jours. »  
 « Et quand il les aura tous lus ? »  
-« Alors vous aurez peut être à nouveau besoin de moi »  
+« Alors vous aurez peut être à nouveau besoin de moi. »  
 Lloyd le regarde bizarrement. L'ascenseur ouvre ses portes. Il y entre, appuie sur 1.  
-« Je comprends pourquoi l'informatique a été interdite, vous êtes dangereux » lance Lloyd alors que les portes se referment.  
+« Je comprends pourquoi l'informatique a été interdite, vous êtes dangereux. » lance Lloyd alors que les portes se referment.  
 
 3 août. Une bouteille d'alcool fort dans la main, il regarde les étoiles debout sur son muret quasi-éternel. La bouteille est vide, il la jette. 3 août, il appuie trois fois. Un piano... et puis une voix *«I'm a rabbit in your headlights … Scared of the spotlight»* Il tangue un peu sur le muret, se retient. Pas ce soir.
 
