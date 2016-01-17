@@ -60,7 +60,7 @@ Les grand-parents de la petite Apolline habitaient une petite communauté de ret
 
 « Papyyyyyyyyyy !!!! » La petite fille, à peine descendue du train, courrait à toute allure, couettes au vent, vers le vieux monsieur qui se penchait avec difficulté pour la réceptionner entre ses bras.
 
-Un vieux corps de ferme dont l'entrée principale était protégé par un gros chêne plus que centenaire. De vieilles pierres, du lierre grimpant, des rideaux blanc et rouge et une grande table en bois sur laquelle trônait une grande cruche pleine de citronnade. Voila ce qui attendait Lou, Apolline et Zoé lorsqu'elles sortirent de la vieille voiture de Lucien, le père de Zoé.   
+Un vieux corps de ferme dont l'entrée principale était protégée par un gros chêne plus que centenaire. De vieilles pierres, du lierre grimpant, des rideaux blanc et rouge et une grande table en bois sur laquelle trônait une grande cruche pleine de citronnade. Voila ce qui attendait Lou, Apolline et Zoé lorsqu'elles sortirent de la vieille voiture de Lucien, le père de Zoé.   
 Il y a des journées qui sont faites pour rester dans les mémoires. Des journées si parfaites que l'on aimerait qu'elles ne se terminent jamais. La journée que passa Apolline chez ses grands parents fut l'une de celles-ci.   
 Oubliée la légère migraine que lui procurait l'implantation du contrôleur des droits de vision. Oublié la tristesse de plus pouvoir regarder ses dessins animés, la jalousie quand dans le train elle avait du contempler Lou qui regardait programmes sur programmes …
 
