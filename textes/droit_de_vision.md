@@ -53,7 +53,7 @@ Tard le soir, la petite Appoline a fini par s'endormir, le nez sur sa tablette v
 
 « Lou vient ! On va au niveau -10 prendre le train pour la campagne ! Maman on pourra regarder aux fenêtres ?  »  
 « Oui ma chérie vous pourrez si vous voulez »  
-« Zoé, je pourrais regarder mes dessins animés s'il vous plaît pendant le voyage ? » demanda Lou à priori pas du tout intéressé par la perspective future de regarder le paysage le nez collé aux fenêtres du train.   
+« Zoé, je pourrai regarder mes dessins animés s'il vous plaît pendant le voyage ? » demanda Lou à priori pas du tout intéressé par la perspective future de regarder le paysage le nez collé aux fenêtres du train.   
 « Bien entendu Lou, mais il faudra que tu fasses attention ni Apolline ni moi n'avons suffisamment de crédit de droit de vision pour pouvoir regarder tes programmes »  
 
 Les grands parents de la petite Apolline habitait une petite communauté de retraités qui n'arrivaient pas à se faire à la vie en ville dans la nouvelle façon de vivre en société. Officiellement, l'état ne voulait que le mieux pour chacun de ses citoyens. Et il ne voulait pas rendre malheureux de vieux citoyens qui n'arrivaient pas à se faire à la société de la culture libérée telle qu'elle existait.   
