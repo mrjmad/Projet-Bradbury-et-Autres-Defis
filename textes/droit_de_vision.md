@@ -6,7 +6,7 @@
 « Bien, alors une petite question. Qui sait quel jour on sera demain ? »  
 Une forêt de doigts se dressa, tous les jeunes élèves visiblement très motivés pour répondre.  
 « Oui Alicia ? »  
-La petite fille se trémoussait de joie d'avoir été choisi.   
+La petite fille se trémoussait de joie d'avoir été choisie.   
 « Demain c'est le jour de l'implantation »  
 « Trés bien Alicia. Et qu'est ce que le jour de l'implantation Abdouharim? »  
 Le petit garçon interrogé répondit sans hésiter : «  Quand les enfants ont 8 ans, les docteurs viennent à l'école et branchent le contrôleur de droit de vision maîtresse. C'est très important et ça ne ferra pas mal ! »  
