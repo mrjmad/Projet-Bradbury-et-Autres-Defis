@@ -38,7 +38,7 @@ Zoé ne savait pas quoi répondre à sa fille. Elle la serra simplement dans ses
 « Vrai maman ? »  
 « Oui. Et pour le prochain week-end, on ira chez tes grands parents, pour les voir ? »  
 « Oh oui !!! Dis je pourrais demander à Lou de venir ? »  
-« Je demanderai demain à ses parents si ils sont d'accord pour qu'elle vienne à la campagne avec nous. Mais tu sais parfois les gens ont peur d'aller à la campagne, alors je ne sais pas »  
+« Je demanderai demain à ses parents si ils sont d'accords pour qu'elle vienne à la campagne avec nous. Mais tu sais parfois les gens ont peur d'aller à la campagne, alors je ne sais pas »  
 « Et papa il pourra venir ? »  
 « Non ma chérie, il doit rester travailler tout le week-end »  
 
