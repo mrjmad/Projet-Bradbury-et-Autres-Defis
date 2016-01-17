@@ -8,10 +8,10 @@ Une forêt de doigts se dressa, tous les jeunes élèves visiblement très motiv
 « Oui Alicia ? »  
 La petite fille se trémoussait de joie d'avoir été choisie.   
 « Demain c'est le jour de l'implantation »  
-« Trés bien Alicia. Et qu'est ce que le jour de l'implantation Abdouharim? »  
-Le petit garçon interrogé répondit sans hésiter : «  Quand les enfants ont 8 ans, les docteurs viennent à l'école et branchent le contrôleur de droit de vision maîtresse. C'est très important et ça ne ferra pas mal ! »  
+« Trés bien Alicia. Et qu'est-ce que le jour de l'implantation Abdouharim? »  
+Le petit garçon interrogé répondit sans hésiter : «  Quand les enfants ont 8 ans, les docteurs viennent à l'école et branchent le contrôleur de droit de vision maîtresse. C'est très important et ça ne fera pas mal ! »  
 « Et pourquoi est ce très important ? »  
-« Pour que la culture ne soient pas menacée et qu'on ne risque pas d'être méchant en regardant quelque chose qu'on n'aurait pas payé maîtresse » finirent en chœur les enfants.  
+« Pour que la culture ne soit pas menacée et qu'on ne risque pas d'être méchant en regardant quelque chose qu'on n'aurait pas payé maîtresse » finirent en chœur les enfants.  
 «  Très bien, maintenant voici le travail de la journée, vous allez commencer par lire le chapitre Être un gentil enfant et apprendre à détecter si quelqu'un ne respecte pas les droits de la culture. Ensuite on regardera une vidéo offerte par Unlimited Group»  
 Obéissants, les enfants allumèrent leur bureau écran, ouvrirent leur livre numérique de cours  et commencèrent à lire.   
 
