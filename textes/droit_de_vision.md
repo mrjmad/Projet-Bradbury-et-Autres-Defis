@@ -88,4 +88,4 @@ Un grand fracas. La porte d'entrée s'ouvre sous les coups d'un bélier d'acier 
 « Mon père n'a rien fait » rajoute-t-elle.  
 « N'essayez pas de jouer avec nous ou nous vous embarquons aussi ! » répond violemment le policier.  
 « Il a raconté une histoire. Et ne le niez pas, il a été dénoncé » dit-il, comme si cela expliquait tout.   
-« Et en plus, il n'y a même pas la télévision que la loi vous oblige à avoir dans chaque salon. Qu'est ce qui ne va pas avez vous, espèce d'ennemi de la culture ! » rajoute-il.   
+« Et en plus, il n'y a même pas la télévision que la loi vous oblige à avoir dans chaque salon. Qu'est ce qui ne va pas avec vous, espèce d'ennemi de la culture ! » rajoute-il.   
