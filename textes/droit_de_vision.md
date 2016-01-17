@@ -56,7 +56,7 @@ Tard le soir, la petite Appoline a fini par s'endormir, le nez sur sa tablette v
 « Zoé, je pourrai regarder mes dessins animés s'il vous plaît pendant le voyage ? » demanda Lou à priori pas du tout intéressé par la perspective future de regarder le paysage le nez collé aux fenêtres du train.   
 « Bien entendu Lou, mais il faudra que tu fasses attention ni Apolline ni moi n'avons suffisamment de crédit de droit de vision pour pouvoir regarder tes programmes »  
 
-Les grands parents de la petite Apolline habitait une petite communauté de retraités qui n'arrivaient pas à se faire à la vie en ville dans la nouvelle façon de vivre en société. Officiellement, l'état ne voulait que le mieux pour chacun de ses citoyens. Et il ne voulait pas rendre malheureux de vieux citoyens qui n'arrivaient pas à se faire à la société de la culture libérée telle qu'elle existait.   
+Les grand-parents de la petite Apolline habitait une petite communauté de retraités qui n'arrivaient pas à se faire à la vie en ville dans la nouvelle façon de vivre en société. Officiellement, l'état ne voulait que le mieux pour chacun de ses citoyens. Et il ne voulait pas rendre malheureux de vieux citoyens qui n'arrivaient pas à se faire à la société de la culture libérée telle qu'elle existait.   
 
 « Papyyyyyyyyyy !!!! » La petite fille, à peine descendu du train, courrait à toute allure, couettes au vent, vers le vieux monsieur qui se penchaient avec difficulté pour la réceptionner entre ses bras.
 
