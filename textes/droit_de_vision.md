@@ -47,7 +47,7 @@ Zoé ne savait pas quoi répondre à sa fille. Elle la serra simplement dans ses
 Tard le soir, la petite Appoline a fini par s'endormir, le nez sur sa tablette vidéo. À tâtons, les yeux fermés pour ne pas voir la vidéo, son père éteint la tablette, ouvre les yeux et la pause entre une poupée et un chevalier en armure. Après avoir bordé sa fille et lui avoir déposé un dernier bisou sur le front, il rejoint sa femme.  
 « Voila, elle dort. J'ai rangé sa tablette »  
 « Tu es sur de ne pas pouvoir venir avec nous ce week-end ? Cela te ferait du bien de respirer l'air de la campagne ? »  
-« Je voudrais, tu le sais. Mais si je ne fais pas des heures supplémentaires, nous n'auront pas assez d'argent pour payer les droits de visionnage des programmes culturels d'Apolline. Et tu sais comme moi que sans ces programmes supplémentaire, elle ne pourra pas réussir à l'école »  
+« Je voudrais, tu le sais. Mais si je ne fais pas des heures supplémentaires, nous n'aurons pas assez d'argent pour payer les droits de visionnage des programmes culturels d'Apolline. Et tu sais comme moi que sans ces programmes supplémentaires, elle ne pourra pas réussir à l'école »  
 
 ….....  
 
