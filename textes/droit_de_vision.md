@@ -83,7 +83,7 @@ Lorsque soudain.
 Un grand fracas. La porte d'entrée s'ouvre sous les coups d'un bélier d'acier noir. Une escouade de police fait irruption dans la pièce alors que Lucien sort de sa chambre, encore en pyjama pour voir ce qui se passe. Quelques instants se passent et le voici jeté à terre et menotté.  
 
 « D'après la loi 2789 du 23 janvier 2022, vous êtes coupable de tentative de création non homologuée par les entreprises de préservation de la culture et, circonstance aggravante, sans avoir acquis un statut d'auteur. » récita l'un des hommes en noir.   
-«  On vous embarque. Mesdames ne tentaient rien qui nous obligerait à faire usage de la force »  
+«  On vous embarque. Mesdames ne tentez rien qui nous obligerait à faire usage de la force »  
 « C'est une erreur, c'est une erreur, vous vous trompez ! » crie Zoé en larme tandis que le flic fait se lever son père.   
 « Mon père n'a rien fait » rajoute-t-elle.  
 « N'essayez pas de jouer avec nous ou nous vous embarquons aussi ! » répond violemment le policier.  
