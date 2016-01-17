@@ -1,7 +1,7 @@
 # Droit de vision
 
 
-« Bonjour les enfants, comment allez vous aujourd'hui ? »  
+« Bonjour les enfants, comment allez-vous aujourd'hui ? »  
 « Ca va maîtresse » répondirent-en choeur la classe.   
 « Bien, alors une petite question. Qui sait quel jour on sera demain ? »  
 Une forêt de doigts se dressa, tout les jeunes élèves visiblement très motivés pour répondre.  
