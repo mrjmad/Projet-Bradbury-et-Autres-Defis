@@ -30,3 +30,7 @@ Mais finalement cela faisait trop mélo. J'avais l'impression de rajouter du pat
 que cela n'allait pas avec le personnage d'Elliot. Pourquoi est ce qu'il aurait attendu sa mort pour reprendre contact...
 
 Donc au final, j'ai supprimé cette partie.
+
+## Playlist
+
+La playlist que j'ai écouté est tout simplement une sous partie de celle de l'Ipod d'Elliot. Toutes les chansons citées dans le texte ont résonné dans mes oreilles lorsque j'écrivais cette nouvelle. La playlist d'Elliot fait 1716 chansons, celle que j'ai utilisé pour écrire l'histoire n'en contenait que 14 mais ces 14 morceaux étaient indéniablement sur sa playlist. 
