@@ -84,7 +84,7 @@ Un grand fracas. La porte d'entrée s'ouvre sous les coups d'un bélier d'acier 
 
 « D'après la loi 2789 du 23 janvier 2022, vous êtes coupable de tentative de création non homologuée par les entreprises de préservation de la culture et, circonstance aggravante, sans avoir acquis un statut d'auteur. » récita l'un des hommes en noir.   
 «  On vous embarque. Mesdames ne tentez rien qui nous obligerait à faire usage de la force »  
-« C'est une erreur, c'est une erreur, vous vous trompez ! » crie Zoé en larme tandis que le flic fait se lever son père.   
+« C'est une erreur, c'est une erreur, vous vous trompez ! » crie Zoé en larmes tandis que le flic fait se lever son père.   
 « Mon père n'a rien fait » rajoute-t-elle.  
 « N'essayez pas de jouer avec nous ou nous vous embarquons aussi ! » répond violemment le policier.  
 « Il a raconté une histoire. Et ne le niez pas, il a été dénoncé » dit-t-il, comme si cela expliquait tout.   
