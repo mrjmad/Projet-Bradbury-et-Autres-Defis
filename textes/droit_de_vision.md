@@ -17,9 +17,9 @@ Obéissants, les enfants allumèrent leur bureau écran, ouvrirent leur livre nu
 
 Apolline ne voulait pas rentrer chez elle. Rentrer chez elle, cela voulait dire que ce serait bientôt demain. Et demain.. demain c'était l'implantation. Elle savait qu'alors elle ne pourrait plus regarder ses programmes préférés. Ses parents n'avaient pas l'argent pour lui payer les droits de vision.  
 
-Elle rentra pourtant. Parce que c'était la dernière soirée où elle pourrait regarder ses programmes librement. L'école était au 32ième niveau. Le trajet jusqu'au 6ième niveau où elle habitait n'était si rapide ni simple. Et malgré son humeur plus que triste, jamais elle ne mit aussi peu de temps pour le parcourir.
+Elle rentra pourtant. Parce que c'était la dernière soirée où elle pourrait regarder ses programmes librement. L'école était au 32ième niveau. Le trajet jusqu'au 6ième niveau où elle habitait n'était ni rapide ni simple. Et malgré son humeur plus que triste, jamais elle ne mit aussi peu de temps pour le parcourir.
 
-« Bonjour Apolline, demain est un grand jour pour toi ! » lui dit la porte d'entrée de chez parent lorsque l'écolière fit scanner sa rétine par le verrou biométrique.   
+« Bonjour Apolline, demain est un grand jour pour toi ! » lui dit la porte d'entrée de chez ses parent lorsque l'écolière fit scanner sa rétine par le verrou biométrique.   
 « Tu vas pouvoir devenir une citoyenne qui participe à la sauvegarde de la diversité culturelle et à la survie des artistes » continua le réfrigérateur lorsqu'elle l'ouvrit pour se servir un verre de jus d'orange.   
 « Ta famille ne regarde que le nombre légal minimal de programmes payants, espérons que tu seras plus impliquée qu'eux dans le soutien de nos entreprises de loisir » cru bon d'ajouter  la petite pyramide bleu présente devant l'écran de télévision et dans lequel se trouvait l'assistant domestique obligatoire.
 « Taisez vous ! Je vous déteste » cria la petite fille en courant s'enfermer dans sa chambre.  
