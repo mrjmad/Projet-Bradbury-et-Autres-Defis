@@ -12,7 +12,7 @@ La petite fille se trémoussait de joie d'avoir été choisie.
 Le petit garçon interrogé répondit sans hésiter : «  Quand les enfants ont 8 ans, les docteurs viennent à l'école et branchent le contrôleur de droit de vision maîtresse. C'est très important et ça ne fera pas mal ! »  
 « Et pourquoi est ce très important ? »  
 « Pour que la culture ne soit pas menacée et qu'on ne risque pas d'être méchant en regardant quelque chose qu'on n'aurait pas payé maîtresse » finirent en chœur les enfants.  
-«  Très bien, maintenant voici le travail de la journée, vous allez commencer par lire le chapitre Être un gentil enfant et apprendre à détecter si quelqu'un ne respecte pas les droits de la culture. Ensuite on regardera une vidéo offerte par Unlimited Group»  
+«  Très bien, maintenant voici le travail de la journée, vous allez commencer par lire le chapitre *Être un gentil enfant* et apprendre à détecter si quelqu'un ne respecte pas les droits de la culture. Ensuite on regardera une vidéo offerte par Unlimited Group»  
 Obéissants, les enfants allumèrent leur bureau écran, ouvrirent leur livre numérique de cours  et commencèrent à lire.   
 
 Apolline ne voulait pas rentrer chez elle. Rentrer chez elle, cela voulait dire que ce serait bientôt demain. Et demain.. demain c'était l'implantation. Elle savait qu'alors elle ne pourrait plus regarder ses programmes préférés. Ses parents n'avaient pas l'argent pour lui payer les droits de vision.  
