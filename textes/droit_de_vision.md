@@ -28,7 +28,7 @@ Elle rentra pourtant. Parce que c'était la dernière soirée où elle pourrait 
 Plusieures heures plus tard les parents de la petite fille rentrèrent enfin. Celle-ci était toujours dans sa chambre regardant programme après programme en grignotant un bâtonnet de fromage.   
 « Apolline ? Je peux rentrer ? » demanda sa mère.   
 « Attends, maman, j'éteins » répondit la petite fille.   
-Elle éteignit sa tablette vidéo et par acquis de conscience la retourna écran contre le bureau. Il y avait quelques semaines, sa mère était rentrée dans sa chambre et avait vu le flux vidéo du programme que regardait sa fille. Mais Zoé, la maman d'Apolline, n'avait pas acheté le droit de visionner le programme en question. Le contrôleur de droit de vision implanté sur son nerf optique avait donc instantané brouillé sa vision. Et comme ce n'était pas la première infraction de Zoé, celle-ci avait en plus gagné une bonne migraine et un saignement de nez.   
+Elle éteignit sa tablette vidéo et par acquis de conscience la retourna écran contre le bureau. Il y avait quelques semaines, sa mère était rentrée dans sa chambre et avait vu le flux vidéo du programme que regardait sa fille. Mais Zoé, la maman d'Apolline, n'avait pas acheté le droit de visionner le programme en question. Le contrôleur de droit de vision implanté sur son nerf optique avait donc instantanément brouillé sa vision. Et comme ce n'était pas la première infraction de Zoé, celle-ci avait en plus gagné une bonne migraine et un saignement de nez.   
 Zoé entra donc dans la chambre de sa fille, qui se précipita dans ses bras.   
 « Je ne veux pas maman, demain, je ne veux pas »  
 « Je sais ma chérie, mais tu sais, c'est comme cela. »  
