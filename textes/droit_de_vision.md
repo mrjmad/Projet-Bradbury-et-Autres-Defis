@@ -58,7 +58,7 @@ Tard le soir, la petite Appoline a fini par s'endormir, le nez sur sa tablette v
 
 Les grand-parents de la petite Apolline habitaient une petite communauté de retraités qui n'arrivaient pas à se faire à la vie en ville dans la nouvelle façon de vivre en société. Officiellement, l'état ne voulait que le mieux pour chacun de ses citoyens. Et il ne voulait pas rendre malheureux de vieux citoyens qui n'arrivaient pas à se faire à la société de la culture libérée telle qu'elle existait.   
 
-« Papyyyyyyyyyy !!!! » La petite fille, à peine descendu du train, courrait à toute allure, couettes au vent, vers le vieux monsieur qui se penchaient avec difficulté pour la réceptionner entre ses bras.
+« Papyyyyyyyyyy !!!! » La petite fille, à peine descendue du train, courrait à toute allure, couettes au vent, vers le vieux monsieur qui se penchaient avec difficulté pour la réceptionner entre ses bras.
 
 Un vieux corps de ferme dont l'entrée principale était protégé par un gros chêne plus que centenaire. De vieilles pierres, du lierre grimpant, des rideaux blanc et rouge et une grande table en bois sur laquelle trônait une grande cruche pleine de citronnade. Voila ce qui attendait Lou, Apolline et Zoé lorsqu'elles sortirent de la vieille voiture de Lucien, le père de Zoé.   
 Il y a des journées qui sont faites pour rester dans les mémoires. Des journées si parfaites que l'on aimerait qu'elles ne se terminent jamais. La journée que passa Apolline chez ses grands parents fut l'une de celles-ci.   
