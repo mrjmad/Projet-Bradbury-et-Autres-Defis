@@ -4,7 +4,7 @@
 « Bonjour les enfants, comment allez-vous aujourd'hui ? »  
 « Ça va maîtresse » répondit la classe en choeur.   
 « Bien, alors une petite question. Qui sait quel jour on sera demain ? »  
-Une forêt de doigts se dressa, tout les jeunes élèves visiblement très motivés pour répondre.  
+Une forêt de doigts se dressa, tous les jeunes élèves visiblement très motivés pour répondre.  
 « Oui Alicia ? »  
 La petite fille se trémoussait de joie d'avoir été choisi.   
 « Demain c'est le jour de l'implantation »  
