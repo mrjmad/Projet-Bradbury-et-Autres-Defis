@@ -7,10 +7,12 @@ J'étais le 13 janvier 2015, vers 13h, à la station de mMétro Bibliothèque Fr
 `Et quatre ou cinq enfants apparurent, dans la peau de tigre des champs.` de Pier Paolo Pasolini.
 
 
-J'ai tout de suite eu l'image d'une grande prairie, de couleur rose, bleue, pastel et douce et d'enfant qui apparaissaient déguisés en tigres.
+J'ai tout de suite eu l'image d'une grande prairie, de couleur rose, bleue, pastel et douce et d'enfant qui apparaissaient déguisés en tigre.
 
 
-Concernant Annabelle, je me suis reveillé il y a de cela 1 ou 2 ans avec un périphrase en tête, "La fille dont on a tout le temps besoin". Je ne savais pas d'où cela me venait ni comment utiliser cela. Mais là du coup, cela passe bien en transformant le mot fille en fée.
+Concernant Annabelle, je me suis reveillé il y a de cela 1 ou 2 ans avec une périphrase en tête, "La fille dont on a tout le temps besoin". Je ne savais pas d'où cela me venait ni comment utiliser cela. Mais là du coup, cela passe bien en transformant le mot fille en fée.
+
+Enfin [No'](https://twitter.com/brunobord) voulait une nouvelle avec une fin heureuse. J'ai voulu lui faire plaisir !
 
 ## Background des personnages et des lieux
 
