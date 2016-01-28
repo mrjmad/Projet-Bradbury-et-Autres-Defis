@@ -1,15 +1,15 @@
 # Et quatre ou cinq enfants apparurent, dans la peau de tigre des champs.
 
 
-L'accident eu lieu la nuit, un premier avril. Comme un pied de nez du destin. Il n'aurait d'ailleurs pas du être dans ce TER. Mais les retards s'additionnant aux problèmes, il avait raté celui qu'il aurait du prendre. Céleste aura 6 ans dans trois mois. Le matin du deux avril, elle ne comprit pas vraiment pourquoi son papa n'était pas là, à son réveil pour lui raconter son voyage, comme il lui avait promis trois jours plus tôt. Elle ne comprit pas non plus trop pourquoi sa maman pleurait, pourquoi son papa ne reviendrait plus.
+L'accident eu lieu la nuit, un premier avril. Comme un pied de nez du destin. Il n'aurait d'ailleurs pas dû être dans ce TER. Mais les retards s'additionnant aux problèmes, il avait raté celui qu'il aurait dû prendre. Céleste aura 6 ans dans trois mois. Le matin du 2 avril, elle ne comprit pas vraiment pourquoi son papa n'était pas là, à son réveil pour lui raconter son voyage, comme il lui avait promis trois jours plus tôt. Elle ne comprit pas non plus trop pourquoi sa maman pleurait, pourquoi son papa ne reviendrait plus.
 
 Céleste voulait son papa. Elle ne comprenait pas pourquoi elle devait s'habiller en noir pour suivre une boite en bois qui lui faisait peur et pourquoi elle devait lui dire au revoir.
 
-Céleste eu 7 ans, puis 8 ans.   
+Céleste eut 7 ans, puis 8 ans.   
 Chaque soir, comme sa maman lui avait conseillé de faire, elle souhaite une bonne nuit à son papa, là où il est.
 
 Céleste a 9 ans.   
-Elle court dans la rue, joue avec ses amis à un équivalent moderne des gendarmes et des voleurs. Elle est un extra-terrestre poursuivit par des scientifiques. Ils courent, s'attrapent, rient. Au quatrième étage de l'immeuble devant lequel ils jouent. Un meuble se balance à une poulie, un lourd buffet, héritage familial.   
+Elle court dans la rue, joue avec ses amis à un équivalent moderne des gendarmes et des voleurs. Elle est un extra-terrestre poursuivit par des scientifiques. Ils courent, s'attrapent, rient. Au quatrième étage de l'immeuble devant lequel ils jouent, Un meuble se balance à une poulie, un lourd buffet, héritage familial.   
 Les enfants courent, Céleste l'extraterrestre est devenue scientifique.   
 Elle rattrape le garçon qui joue l'extraterrestre, l'attrape, crie « C'est moi l'extraterrestre » fait demi tour et part à toute vitesse, hurlant de rire.   
 Le buffet se balance, la corde rompt.   
@@ -19,14 +19,14 @@ Le meuble explose.
 Céleste sera bonne pour deux heures chez le dentiste, elle s'est cassé deux dents de devant. Un éclat de bois lui entaille le visage, juste au dessus du sourcil. Elle en gardera une cicatrice qui lui permettra de plus tard frimer et de raconter comment une peau de banane lui a un jour sauvé la vie.
 
 Céleste a 12 ans.   
-Elle marche ans la rue, en plein centre ville avec sa mère. Elles se dépêchent, elles sont en retard pour un rendez vous à la banque. Un seul salaire n'est pas suffisant pour payer les traites du prêt immobilier. Sa mère espère pouvoir négocier un redécoupage des traites. Les lacets de Céleste se défont.   
+Elle marche ans la rue, en plein centre ville avec sa mère. Elles se dépêchent, elles sont en retard pour un Rendez-vous à la banque. Un seul salaire n'est pas suffisant pour payer les traites du prêt immobilier. Sa mère espère pouvoir négocier un redécoupage des traites. Les lacets de Céleste se défont.   
 « Attends maman, mes lacets sont défaits »  
-La petite fille refait ses lacets avec application tandis que sa mère l'attends impatiente.   
-« Dépêches toi Céleste, on va rater le tram et être en retard »  
-« Voila voila »  
+La petite fille refait ses lacets avec application tandis que sa mère l'attend, impatiente.   
+« Dépêche-toi Céleste, on va rater le tram et être en retard »  
+« Voilà, voilà ! »  
 La fillette bondit sur ses pieds et courre pour rattraper sa mère quand patatras.   
 «Tout va bien Céleste ? » demande sa mère qui revient vers elle.   
-Céleste ne comprends pas, les lacets de ses chaussures ont été nouée ensemble. Elle pleure un peu, plus d'incompréhension et de honte que de véritable douleur. Bien entendu le tramway est raté. Elles prendront le suivant. Quand elles arrivent devant la banque, avec quinze minutes de retard, elles ne peuvent s'en approcher. Un cordon de police a été installé. Un braquage vient d'avoir lieu. Il y a trois blessés.
+Céleste ne comprends pas, les lacets de ses chaussures ont été nouées ensembles. Elle pleure un peu, plus d'incompréhension et de honte que de véritable douleur. Bien entendu le tramway est raté. Elles prendront le suivant. Quand elles arrivent devant la banque, avec quinze minutes de retard, elles ne peuvent s'en approcher. Un cordon de police a été installé. Un braquage vient d'avoir lieu. Il y a trois blessés.
 
 Céleste a 16 ans.   
 Elle a fait le mur, est parti faire la fête avec des amies. Elles sont dans un bar, rencontrent des garçons plus vieux. Quelques verres et flirt plus tard, quelqu'un propose de changer d'endroit, d'aller danser. L'un des mecs a une voiture. A peine dix minutes en trajet, on ne risque rien. Céleste s'assoit à l'avant, à la place du mort.  
