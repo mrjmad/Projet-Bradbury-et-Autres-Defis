@@ -38,9 +38,9 @@ Comment son Lui de ce monde avait pu oser ? Comment cette usurpatrice aux cheve
 
 Ce n'était pas possible. Elle aurait du être là. Elle et pas une vulgaire inconnue qui ruinait leur Destin.
 
-Il faut pris d'une rage incontrollable.  
+Il fut pris d'une rage incontrôlable.  
 Il devait réparer les choses, faire cesser cette situation ignoble et contre nature.  
-Ses mains autour du coup de l'inconnue.  
+Ses mains autour du cou de l'inconnue.  
 Il serra. Et Serra encore.  
 Elle se débattait, ne voulait pas cesser de vivre pour que la situation redevienne normale, pour qu'Elle puisse être là.  
 Dans son crâne, la tâche ignoble qu'était l'esprit de son Lui de ce monde hurlait, encore et encore.  
