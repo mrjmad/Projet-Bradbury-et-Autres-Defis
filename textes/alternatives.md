@@ -1,7 +1,7 @@
 # Alternatives
 
 Réalité 2243.  
-Il regardait le paysage noctune défiler de l'autre coté de la fenêtre de son TGV. Il aimait regarder à l'extérieur quand il prenait un train. Surtout la nuit. Voir ce quasi non paysage lentement glisser dans la noirceur de la nuit lui calmait l'esprit. Il ralluma son ordinateur. Elle était connecté.  
+Il regardait le paysage noctune défiler de l'autre coté de la fenêtre de son TGV. Il aimait regarder à l'extérieur quand il prenait un train. Surtout la nuit. Voir ce quasi non paysage lentement glisser dans la noirceur de la nuit lui calmait l'esprit. Il ralluma son ordinateur. Elle était connectée.  
 « Hello, tu me manques tu sais, comment va Judith ? » lança-t-il.  
 « Tu sais très bien que tu dois arrêter de me dire cela » répondit-elle  
 « Je te l'ai déjà expliqué, c'est fini, je ne reviendrais plus, j'en ai marre » continua-t-elle.  
