@@ -34,7 +34,7 @@ Il était enfin maitre de son nouveau corps. Il inspira longuement, essayant de 
 
 MAIS.
 
-Comment son Lui de ce monde avait pu oser ? Comment cette usurpatrice aux cheveux bleux avait pu oser venir dans son lit ? La remplacer Elle !
+Comment son Lui de ce monde avait pu oser ? Comment cette usurpatrice aux cheveux bleus avait pu oser venir dans son lit ? La remplacer Elle !
 
 Ce n'était pas possible. Elle aurait du être là. Elle et pas une vulgaire inconnue qui ruinait leur Destin.
 
