@@ -8,6 +8,7 @@
    *  [Tigres des champs](textes/tigres_des_champs.md)
    *  [Alternatives](textes/alternatives.md)
    *  [Dernier Espoir](textes/dernier_espoir.md)
+   *  [Cachez ce gris que je ne saurais voir !](textes/gris.md)
 * [Inspirations](explications_textes/inspirations.md)
    *  [Everything must end](explications_textes/everything_must_end.md)
    *  [Droit de vision](explications_textes/droit_de_vision.md)
@@ -15,3 +16,4 @@
    *  [Tigres des champs](explications_textes/tigres_des_champs.md)
    *  [Alternatives](explications_textes/alternatives.md)
    *  [Dernier Espoir](explications_textes/dernier_espoir.md)
+   *  [Cachez ce gris que je ne saurais voir !](explications_textes/gris.md)
