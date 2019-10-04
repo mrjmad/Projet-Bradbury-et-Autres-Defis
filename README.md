@@ -1,13 +1,15 @@
 # Introduction
 
-Au départ, il y a une citation de Ray Bradbury :
+Tout commença en 2016, avec une tentative de projet Bradbury. Persuadé que je tiendrais les 52 semaines, j'avais mis en place ce gitbook pour l'héberger.
 
-```“Écrire un roman, c’est compliqué: vous pouvez passer un an, peut-être plus, sur quelque chose qui au final, sera raté. Écrivez des histoires courtes, une par semaine. Ainsi vous apprendrez votre métier d’écrivain. Au bout d’un an, vous aurez la joie d’avoir accompli quelque chose: vous aurez entre les mains 52 histoires courtes. Et je vous mets au défi d’en écrire 52 mauvaises. C’est impossible.”```
+Bien entendu je n'ai pas tenu les 52 semaines, ni même 20 ni même 10.
 
-De cette citation est née l'idée de projet Bradbury. Des gens qui décident d'écrire 52 nouvelles en 52 semaines. J'ai toujours pensé que la contrainte était une source de motivation pour la créativité. Et j'ai de plus en plus d'idées d'histoires qui s'empilent parfois depuis plus de 10 ans.
+Mais même si j'avais tenus, à partir du 31 décembre 2016, ce gitbook se serait mis à prendre la poussière. (ce qu'il a fait bien plus rapidement).
 
-Sans un bon coup de pied au cul, je n'en ferai jamais rien. Donc voilà mon coup de pied au cul, un projet Bradbury pour 2016. Combien de semaines vais-je tenir ? Quand vais-je baisser les bras ? On verra bien, en attendant ...
+En temps qu'asthmatique, je n'aime pas vraiment les choses qui prennent la poussière. Je cherchais donc une idée pour insuffler un peu de vie à ce repository.
+
+La décision de me lancer dans un inktober texte 2019 (poussé par des personnes qui se reconnaitront si elles arrivent ici) m'a donné une excuse parfaite. Un renommage de repo et quelques déplacement de fichier plus tard, revoila un endroit flambant neuf prêt à accueillir tout mes débuts de projets d'écriture que jamais je ne finis !
 
 Bonne lecture !
 
-PS : Suite à la publication de ma première nouvelle sur mon blog et aux efforts de mon relecteur (qui m'a envoyé les corrections par DM Twitter ... merci encore), je change de forme avec un gitbook pour une lecture simple et un repository github pour si quelqu'un veut faire des PR (le repo: [Suivez le lien](https://github.com/mrjmad/Projet-Bradbury-2016) )
+PS : Les premières relectures de la première version ont été faite par DM Twitter. Pas très efficace. Du coup, je suis passé sur un gitbook connecté à un repo github (le repo: [Suivez le lien](https://github.com/mrjmad/Projet-Bradbury-et-Autres-Defis) )

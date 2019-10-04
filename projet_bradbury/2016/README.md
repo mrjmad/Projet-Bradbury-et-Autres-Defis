@@ -1,0 +1,11 @@
+# Introduction
+
+Au départ, il y a une citation de Ray Bradbury :
+
+```“Écrire un roman, c’est compliqué: vous pouvez passer un an, peut-être plus, sur quelque chose qui au final, sera raté. Écrivez des histoires courtes, une par semaine. Ainsi vous apprendrez votre métier d’écrivain. Au bout d’un an, vous aurez la joie d’avoir accompli quelque chose: vous aurez entre les mains 52 histoires courtes. Et je vous mets au défi d’en écrire 52 mauvaises. C’est impossible.”```
+
+De cette citation est née l'idée de projet Bradbury. Des gens qui décident d'écrire 52 nouvelles en 52 semaines. J'ai toujours pensé que la contrainte était une source de motivation pour la créativité. Et j'ai de plus en plus d'idées d'histoires qui s'empilent parfois depuis plus de 10 ans.
+
+Sans un bon coup de pied au cul, je n'en ferai jamais rien. Donc voilà mon coup de pied au cul, un projet Bradbury pour 2016. Combien de semaines vais-je tenir ? Quand vais-je baisser les bras ? On verra bien, en attendant ...
+
+Bonne lecture !
