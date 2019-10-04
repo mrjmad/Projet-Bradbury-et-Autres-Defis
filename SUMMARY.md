@@ -20,3 +20,9 @@
        *  [Alternatives](projet_bradbury/2016/explications_textes/alternatives.md)
        *  [Dernier Espoir](projet_bradbury/2016/explications_textes/dernier_espoir.md)
        *  [Cachez ce gris que je ne saurais voir !](projet_bradbury/2016/explications_textes/gris.md)
+* Inktober
+  * Inktober 2019
+    * [Ring](inktober/2019/ring.md)
+    * [Mindless](inktober/2019/mindless.md)
+    * [Bait](inktober/2019/bait.md)
+    * [Freeze](inktober/2019/freeze.md)
