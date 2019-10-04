@@ -38,4 +38,4 @@ Mais ceux que Froum, Brim, Tremme et Pfoum contemplait, cela remettait tout en c
 
 "Je ne suis pas d'accord. Nous devons dire la vérité. Les gens doivent savoir. Vous vous rendez compte, les Golts. Vous ne pouvez pas. Nous devons le dire ..."
 
-Alors que la nuit commençait à tomber sur Amork la glacée, trois silhouette enflammées se détachaient sur l'horizon. Sans se regarder, sans se retourner, sans parler, elles s'éloignaient aussi vite que possible de la ville glacée. 
+Alors que la nuit commençait à tomber sur Amork la glacée, trois silhouette enflammées se détachaient sur l'horizon. Sans se regarder, sans se retourner, sans parler, elles marchaient. S'éloignant aussi vite que possible de la ville glacée, espérant échapper au froid qui brulait leur âme. 
