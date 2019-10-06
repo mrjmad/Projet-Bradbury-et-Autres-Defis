@@ -27,3 +27,5 @@
     * [Bait](inktober/2019/bait.md)
     * [Freeze](inktober/2019/freeze.md)
     * [Build](inktober/2019/build.md)
+    * [Husky](inktober/2019/husky.md)
+    * [Enchanted](inktober/2019/enchanted.md)
