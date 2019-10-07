@@ -2,7 +2,7 @@
 
 *Ici j'avais le choix entre considéré que c'était le nom de la race canine ou utiliser la traduction, à savoir rauque. j'ai choisi rauque*
 
-Vignette sorti son vieux vélo du garage, vérifia la pression des pneus, les freins et une fois rassurée enfourcha l’engin et se lança d’un bon coup de pédale. Elle n’avait plus utilisé son vélo depuis quelques mois, ses premiers mêtres furent donc peu académique. Mais finallement, les automatismes lui revirent et elle retrouva toute son assurance. 
+Vignette sorti son vieux vélo du garage, vérifia la pression des pneus, les freins et une fois rassurée enfourcha l’engin et se lança d’un bon coup de pédale. Elle n’avait plus utilisé son vélo depuis quelques mois, ses premiers mêtres furent donc peu académique. Mais finallement, les automatismes lui revirent et elle retrouva toute son assurance.
 
 Normalement pour faire les vingt-trois kilomètres qui la séparait de l’hopital, elle aurait pris sa petite voiture électrique. Mais il avait fait froid les semaines précédentes et les vieux os d’une grand-mère n’aimait pas avoir froid. Chauffer sa maison avait consommé tout son quota de CO2 mensuel. Il ne serait remis à zéro que dans deux jours. Mais vignette ne pouvait attendre deux jours.  Après plusieures semaines d’hospitalisation et plusieurs opérations, Voisine, sa meilleure amie avait enfin le droit de recevoir des visites.
 
@@ -20,4 +20,8 @@ Elles en avaient vu d’autre toutes les deux. Si l’effondrement n’avait pas
 La femme alitée leva la tête, le seul œil qui lui restait brillait de joie de vivre, derrière le verre à gros foyer.
 « Bonjour Vignette, tu vois les mauvaises herbes ont la vie dure ».
 Bien que les mots soient compréhensible, la voix était si rude ; si éraillé qu’on avait du mal à y reconnaître une voix humaine. C’était le style de voix qu’un rocher aurait pu avoir, dans les films de l’ancien temps. Une voix de cuir, qui faisait presque mal à entendre.
-« Bonté divine, mais qu’est ce que tu as la voix rauche, Voisine ! » ne put s’empêcher de s’esclamer Vignette.
+« Bonté divine, mais qu’est ce que tu as la voix rauque, Voisine ! » ne put s’empêcher de s’esclamer Vignette.
+
+
+
+*Pour les moins de trente ans. Il semblerait que les moins de trente ans n'est pas la référence : https://fr.wikipedia.org/wiki/Roch_Voisine*
