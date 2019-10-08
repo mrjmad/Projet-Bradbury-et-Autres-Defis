@@ -5,16 +5,16 @@
 
 « un Enchanté, un enchanté »
 
-Les cris mélant horreur et incrédulité réveillèrent Mélody qui somnolait dans le rocking chair  agréablement disposé au soleil, sur la terrasse de la maison où elle louait une petite chambre pour quelque jours.
+Les cris mélant horreur et incrédulité réveillèrent Mélody qui somnolait dans le rocking chair agréablement disposé au soleil, sur la terrasse de la maison où elle louait une petite chambre pour quelque jours.
 
-Elle n’était pas levé qu’elle avait déjà ses armes en main, prête à tirer sur la mointre menace électroménagère qui pouvait apparaître. Les cris provenaient d’enfant, cela pouvait ne pas être grave, peut être une lampe de chevet croqeuse ou un mixeur dévoreur qui avait essayé de leur broyer les membres après les avoir fait tomber avec son fils d’alimentation …
+Elle n’était pas levé qu’elle avait déjà ses armes en main, prête à tirer sur la mointre menace électroménagère qui pouvait apparaître. Les cris provenaient d’enfants, cela pouvait ne pas être grave, peut être une lampe de chevet croqueuse ou un mixeur dévoreur qui avait essayé de leur broyer les membres après les avoir fait tomber avec son fils d’alimentation …
 
-Elle se dirigea vers les cris, lorsque les enfants sortirent des fourets séparant la forets des derniers champs du village. En un regard, elle sut que la situation était bien bien plus compliqué que prévu. Les enfants étaient literralement terrorisé. Les deux plus grands portait l’un d’entre eux qui avait visiblement un garot et perdu une partie de sa jambe.
+Elle se dirigea vers les cris, lorsque les enfants sortirent des fourets séparant la forets des derniers champs du village. En un regard, elle sut que la situation était bien bien plus compliquée que prévu. Les enfants étaient literralement terrorisé. Les deux plus grands portaient l’un d’entre eux qui avait visiblement un garot et perdu une partie de sa jambe.
 
 Les cris avaient fini par faire accourir d’autre adultes. Tout le monde criait, posait des questions, paniquait et les enfants continuaient à hurler.
 
-« Laisser moi passer, je suis une chasseuse d’enchanté électrique assermentée » cria-t-elle en se ménageant un chemin jusqu’aux enfants
-« Reculez, laisser leur un peu d’espace et laissez les parler. Je dois savoir de quel type d’appareil il s’agit »
+« Laisser moi passer, je suis une chasseuse d’enchanté électrique assermentée » cria-t-elle en se ménageant un chemin jusqu’aux enfants.
+« Reculez, laissez leur un peu d’espace et laissez les parler. Je dois savoir de quel type d’appareil il s’agit »
 « Et amenez celui qui est blessé chez le Doc, il faut soigner ça »
 « Vous et Vous » ajouta Mélody en désignant deux adultes au hasard, « Dépéchez vous, portez le se faire soigner »
 Elle se retourna vers les enfants, leur faisant signe de parler.
@@ -26,15 +26,15 @@ Elle se retourna vers les enfants, leur faisant signe de parler.
 « Nous savions que c’était un enchanté » rajouta un des plus grands.
 « Nous avons commencé à rebrousser chemin en essayant de nous éloigner le plus possible du bruit »
 « Mais le bruit nous suivait, et se rapprochait » ajouta un autre garçon
-« Et il est apparu » repris le deuxième adolescent. « J’en ai vu dans les livres que papa m’a montré, c’était un frigidaire, non un énorme congélateur blanc mais avec des traces rouges séchées autour de sa porte. Et il avait des dents. Et sa porte s’ouvrait encore et encore … en broyant les arbres »
+« Et il est apparu » repris le deuxième adolescent. « J’en ai vu dans les livres que papa m’a montrés, c’était un frigidaire, non un énorme congélateur blanc mais avec des traces rouges séchées autour de sa porte. Et il avait des dents. Et sa porte s’ouvrait encore et encore … en broyant les arbres »
 « Il a glissé vers nous, il voulait tous nous dévorer »
 « Et il a rattrapé Tim, en lui attrapant la cheville avec son cable »
-Les enfant se mirent à nouveau à pleurer.. ne voulant plus parler.
+Les enfants se mirent à nouveau à pleurer.. ne voulant plus parler.
 
 Mélody en savait assez, elle se redressa et s’appréter à dire à tout le monde de rentrer chez soi et de bien s’enfermer et qu’elle allait parler avec le maire et le shérif quand l’un des ados repris la parole.
 
 « Je l’ai vu  .. »
-« Je l’ai vu avaler Tim et l’écraser petit à petit a coup de porte »
+« Je l’ai vu avaler Tim et l’écraser petit à petit à coup de porte »
 «  J’ai vu les autres bouts de gens à l’intérieur »
 
 « Rentrez tous chez vous, fermez vos portes, ne sortez pas la nuit. Nous allons organiser une battue et nous occupez de cet enchanté avec le shérif »
