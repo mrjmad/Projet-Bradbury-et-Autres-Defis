@@ -36,3 +36,4 @@
     * [Dragon](inktober/2019/dragon.md)
     * [Ash](inktober/2019/ash.md)
     * [Overgrown](inktober/2019/overgrown.md)
+    * [Legend](inktober/2019/legend.md)
