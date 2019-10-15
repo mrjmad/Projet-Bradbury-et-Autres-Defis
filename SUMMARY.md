@@ -37,3 +37,4 @@
     * [Ash](inktober/2019/ash.md)
     * [Overgrown](inktober/2019/overgrown.md)
     * [Legend](inktober/2019/legend.md)
+    * [Wild](inktober/2019/wild.md)
