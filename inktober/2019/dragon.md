@@ -10,7 +10,7 @@ Alors je l’écris à nouveau. Je ne suis pas un dragon. Mais j’en ai démasq
 
 Et les dragons n’aiment pas être démasqué. Je sais qu’il me cherche. Et malgré toutes mes précautions il se rapproche. C’est pour cela que j’écris mon journal testament. Pour que ce que je sais ne meure pas avec moi.
 
-IL faut que le monde sache. Il faut que vous sachiez que les légendes existent. Les trolls sont réels et vivent bien souvent sous des arches. Lorsque vous passez sous une arche et que vous sentez comme un courant d’air froid dans le cou, c’est un troll qui sous renifle, pour savoir si vous êtes ou pas à son goût.
+Il faut que le monde sache. Il faut que vous sachiez que les légendes existent. Les trolls sont réels et vivent bien souvent sous des arches. Lorsque vous passez sous une arche et que vous sentez comme un courant d’air froid dans le cou, c’est un troll qui sous renifle, pour savoir si vous êtes ou pas à son goût.
 
 Et il y a une hiérarchie dans tous ces monstres. Et tout en haut, ceux qui décident de tout. Ce sont les dragons. Et ce sont les plus dangereux. Parce qu’ils peuvent prendre forme humaine. Et rien ou quasiment rien ne permet de les démasquer. Il y a bien quelques indices. Parfois leur yeux virent au doré et leur pupille devient semblable à celle d’un iguane. Si vous arrivez à les blesser, leur sang ne sera pas rouge mais argenté. Et enfin ils sont beaux. Quand un dragon entre dans une pièce tout le monde se retourne. Sa présence vous étouffe. Vous voulez lui faire plaisir. Vous voulez qu’il vous regarde, qu’il vous complimente.
 
