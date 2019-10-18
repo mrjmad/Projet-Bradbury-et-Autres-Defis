@@ -38,3 +38,5 @@
     * [Overgrown](inktober/2019/overgrown.md)
     * [Legend](inktober/2019/legend.md)
     * [Wild](inktober/2019/wild.md)
+    * [Ornament](inktober/2019/ornament.md)
+    * [Misfit](inktober/2019/misfit.md)

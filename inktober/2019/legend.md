@@ -2,6 +2,8 @@
 
 *Une traduction compliquée, une traduction simple, cette fois cela sera donc Légende*
 
+*Petite précision, important tout de même. Avant de lire cette petite histoire, il faut que vous lisiez [légende](inktober/2019/legend.md). Celle-ci lui fait en effet écho.*
+
 "Qu'est ce que tu as encore ramené ?" demanda Mathieu, sa voix vibrante autant amusée que faussement réprobatrice que caressante
 
 Sa future femme venait de rentrer en serrant fermement contre elle une grosse boite metalique qui avait visiblement été passé par le feu et sûrement d'autre péripéties.
