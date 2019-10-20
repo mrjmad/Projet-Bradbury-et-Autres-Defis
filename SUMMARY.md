@@ -40,3 +40,4 @@
     * [Wild](inktober/2019/wild.md)
     * [Ornament](inktober/2019/ornament.md)
     * [Misfit](inktober/2019/misfit.md)
+    * [Sling](inktober/2019/sling.md)
