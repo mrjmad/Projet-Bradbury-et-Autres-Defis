@@ -3,6 +3,8 @@
 
 *Pour la version française, on a le choix entre fronde ou écharpe*
 
+*note de l'auteur. On m'apprend que sling se traduit par écharpe quand l'on parle d'écharpe de portage de bébé ou quand on se casse un bras. Tant pis du coup :)*
+
 #### 6h55, Lundi 18 octobre 2021
 
 « BIP BIP BIP » Lucille sortit difficilement de sous les couvertures pour envoyer valser le vilain petit réveil qui venait de la sortir d’un rêve plus qu’agréable. Elle aurait bien voulu rester dans son lit, retrouver son rêve. Mais tant pis.
