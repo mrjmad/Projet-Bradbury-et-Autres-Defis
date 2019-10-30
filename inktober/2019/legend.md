@@ -20,7 +20,7 @@ Sa future femme venait de rentrer en serrant fermement contre elle une grosse bo
 
 "Tu n'es qu'un bougon briseur de rêve, va plutôt préparer à manger à ta compagne affamée au lieu de faire ton papy la morale ..." répondit Sophie en riant.
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 Le cadenas finit par céder. Ce n'avait pas été facile de le couper. encore un indice sur le fait qu'il n'était pas celui qui fermait la boite à l'origine.
 
@@ -39,7 +39,7 @@ Elle se pencha pour ramasser la boite et son contenu éparpillé dans la pièce.
 
 "J'avais raison, Mathieu, j'avais raison ! Il y a un double fond "
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 "Je ne sais pas si l'auteur était un fou ou si c'est une blague, mais c'est déroutant et un énorme travail" expliqua Sophie, en baillant, le dos bien calé dans ses oreillers.
 
@@ -66,7 +66,7 @@ Sophie arrêta sa lecture.
 
 "Peut-être bien. Il parle aussi des fées, des différentes types de sorcières, des elfes. A le lire toutes les légendes de nos ancêtre sont vrais."
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 "Tu sais l'auteur des carnets?" lança-t-elle alors qu'elle était allongé pendant que son mari lui massait doucement les pieds.
 
@@ -96,7 +96,7 @@ Mais tu te rends compte, il dit plusieurs fois dans ses carnets que sa vie est m
 "Très bien tu n'as qu'à aller à Marseille, c'est à quoi .. deux heures de train. Et puis passe la nuit dehors en plein mois de Janvier. Mais au moins peut-être que tu seras guérie de ces ... conneries " Mathieu lâcha ce dernier mot de façon presque colérique avant de se lever et de sortir de la chambre.
 
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 "Je m’appelle Axel Basdges, ceci et mon journal testament et je le jure, je ne suis pas une
 Sorcière.  Cela peut vous sembler étrange de me lire écrire cela, mais j’ai appris que les Sorcières, comme les fées, les elfes, les lutins et toutes ces créatures étranges qui vivent autour de nous et jouent avec nous sans que nous nous en rendions compte ne peuvent mentir sur ceux qu’ils sont.
@@ -125,7 +125,7 @@ Elle sourit.
 
 "Mais je ne vais pas commencer à mettre du sel devant notre porte voyons, c'est juste que cela me fascine de lire tout ce qe ce malheureux a pu inventer. Mais très bien, demain je les jetterais. Je ne veux pas qu'on se dispute. Elle arrive bientôt et je veux que ses parents soient heureux"
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 
 Sophie vérifia que Mathieu était bien parti au travail avec sa voiture. Elle était tranquille pour plusieurs heures. Elle se glissa sous son plaid, bu quelque gorgées de tisane et récupéra les carnets cachés sous le canapé.
@@ -157,7 +157,7 @@ Elle s'arrêta.
 Décidant que se parler à elle-même n'était pas la meilleure preuve du fait qu'elle soit saine d'esprit, Sophie cacha à nouveau les carnets, lança un série et sirota son infusion.
 
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 "Hello, je suis rentré, tu es là ?  j'ai quelque chose pour toi" La voix de Mathieu était caramel, vibrante, câline. Sophie en frissonna en sentant les mots glissés sur sa peau.
 "Dans la cuisine" répondit-elle
@@ -168,7 +168,7 @@ Décidant que se parler à elle-même n'était pas la meilleure preuve du fait q
 "Londres ? J'adorerais y retourner. Ça fait tellement longtemps. Ça serait merveilleux"
 
 
-~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
+---------------------------------------------------
 
 Mathieu dort.
 
