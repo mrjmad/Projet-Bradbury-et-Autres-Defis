@@ -9,8 +9,11 @@
 Sa future femme venait de rentrer en serrant fermement contre elle une grosse boite metalique qui avait visiblement été passé par le feu et sûrement d'autre péripéties.
 
 "Je l'ai trouvé sur un des stands du vide-grenier" répondit Sophie visiblement aux anges.
+
 "Le vendeur m'a dit que c'était une boite qui avait été retrouvé dans le sous-sol d'une maison qui avait complètement brûlée et que personne ne l'avais jamais encore ouverte"
+
 "et tu l'as cru ? La grossesse te rend vraiment crédule" ironisa Mathieu.
+
 "Bien entendu que non, on voit bien que le cadenas qui a été mis n'est pas aussi endommagé que le reste de la boite. Mais je me demande quand même ce qu'il y a dedans"
 
 "Sûrement rien ou des vieux journaux froissés .. tu me diras"
@@ -39,8 +42,11 @@ Elle se pencha pour ramasser la boite et son contenu éparpillé dans la pièce.
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 "Je ne sais pas si l'auteur était un fou ou si c'est une blague, mais c'est déroutant et un énorme travail" expliqua Sophie, en baillant, le dos bien calé dans ses oreillers.
+
 Elle lisait l'un des trois petits cahiers noirs qu'elle avait fini par réussir à sortir du double fond de la boite brûlée.
+
 "Les carnets sont divisés en petit chapitre de quelques pages et ils commencent tous pareil" continua-t-elle.
+
 "Ha bon ?" demande Mathieu. Rien de plus banal que ces deux mots composant une question et pourtant le ton de sa voix, sa musique exprimait sans ambiguité le sentiment de perte de temps et d'idiotie que tout cela lui inspirait.
 
 "Écoute plutôt" rajouta Sophie en commençant à lire la page qu'elle venait de tourner.
@@ -62,20 +68,30 @@ Sophie arrêta sa lecture.
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
 
 "Tu sais l'auteur des carnets?" lança-t-elle alors qu'elle était allongé pendant que son mari lui massait doucement les pieds.
+
 "L'écrivain raté ?"
+
 "J'ai fait des recherches. Et il est mort dans l'incendie de sa maison, il y a un peu plus d'un an. Un incendie inexpliqué, à Marseille"
+
 "Ça explique l'état de la boite.
+
 Tu veux essayer de retrouver sa famille pour leur renvoyer ?"
-"Dans les articles de presse que j'ai trouvé, ils disent qu'il n'avait pas de famille
+
+"Dans les articles de presse que j'ai trouvé, ils disent qu'il n'avait pas de famille.
 Mais tu te rends compte, il dit plusieurs fois dans ses carnets que sa vie est menacée et il meurs mystérieusement, dans un incendie que les pompiers ne savent pas expliquer"
 
 "Sophie ??" la voix de Mathieu semblait douce et attendrie, mais elle était tendu, dure, presque autoritaire.
+
 "Tu devrais arrêter de lire ses bêtises, la grossesses te brouille les idées, tu ne vas pas tout de même me dire que tu vas te mettre à croire aux fées et aux lutins.. Et pourquoi pas au père noel ?"
 
 "Mais tu fais chier " s'énerva Sophie en libérant ses pieds des mains de Mathieu
+
 "Arrête de penser que la grossesse me rend idiote. Je n'ai jamais dit que ce qu'il avait écrit été la vérité, c'est juste étrange. Et j'ai fait des recherches, les endroits qu'il cite existe bien à Marseille. Il y a bien un tunnel sur le boulevard National."
+
 "Et que dit ton nouveau gourou à propos de ce tunnel ?" ironisa Mathieu
+
 "Qu'un troll y habite et que les nuit de nouvelle lune, on peut le forcer à sortir en respectant un certain rituel. Mais qu'ensuite on ne peut plus emprunter le tunnel sinon le troll aura tout pouvoir de nous attraper pour nous dévorer"
+
 "Très bien tu n'as qu'à aller à Marseille, c'est à quoi .. deux heures de train. Et puis passe la nuit dehors en plein mois de Janvier. Mais au moins peut-être que tu seras guérie de ces ... conneries " Mathieu lâcha ce dernier mot de façon presque colérique avant de se lever et de sortir de la chambre.
 
 
