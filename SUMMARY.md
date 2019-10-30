@@ -42,3 +42,7 @@
     * [Misfit](inktober/2019/misfit.md)
     * [Sling](inktober/2019/sling.md)
     * [Tread](inktober/2019/tread.md)
+    * [Treasure](inktober/2019/treasure.md)
+    * [Ghost](inktober/2019/ghost.md)
+    * [Ancient](inktober/2019/ancient.md)
+    * [Dizzy](inktober/2019/dizzy.md)

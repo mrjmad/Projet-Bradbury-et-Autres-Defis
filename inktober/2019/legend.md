@@ -2,7 +2,7 @@
 
 *Une traduction compliquée, une traduction simple, cette fois cela sera donc Légende*
 
-*Petite précision, important tout de même. Avant de lire cette petite histoire, il faut que vous lisiez [légende](inktober/2019/legend.md). Celle-ci lui fait en effet écho.*
+*Petite précision, important tout de même. Avant de lire cette petite histoire, il faut que vous lisiez [Dragon](dragon.md). Celle-ci lui fait en effet écho.*
 
 "Qu'est ce que tu as encore ramené ?" demanda Mathieu, sa voix vibrante autant amusée que faussement réprobatrice que caressante
 
