@@ -35,4 +35,4 @@ Lucille est assisse sur une couverture rouge posé sur l’herbe, un verre de vi
 Lucille pleure, elle se retourne :
 « Tu me manques, tu me manques tellement. J'ai besoin de toi. j'ai besoin que tu sois encore là»
 
-En face d’elle, une pierre tombale. Sur celle-ci, une photo, d’une jeune femme qui semble heureuse, la même que celle de la photo du couleur de l’appartement de Lucille. En dessous l’inscription ‘Mathilde Piobine 18 octobre 1991 – 12 mai 2021’
+En face d’elle, une pierre tombale. Sur celle-ci, une photo, d’une jeune femme qui semble heureuse, la même que celle de la photo du couloir de l’appartement de Lucille. En dessous l’inscription ‘Mathilde Piobine 18 octobre 1991 – 12 mai 2021’
