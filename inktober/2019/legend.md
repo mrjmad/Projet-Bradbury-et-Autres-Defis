@@ -4,7 +4,7 @@
 
 *Petite précision, important tout de même. Avant de lire cette petite histoire, il faut que vous lisiez [Dragon](dragon.md). Celle-ci lui fait en effet écho.*
 
-"Qu'est ce que tu as encore ramené ?" demanda Mathieu, sa voix vibrante autant amusée que faussement réprobatrice que caressante
+"Qu'est ce que tu as encore ramené ?" demanda Mathieu, sa voix vibrante autant amusée que faussement réprobatrice que caressante.
 
 Sa future femme venait de rentrer en serrant fermement contre elle une grosse boite metalique qui avait visiblement été passé par le feu et sûrement d'autre péripéties.
 
@@ -59,6 +59,7 @@ Si vous demandez à un Troll de manière claire et explicite si c’est un Troll
 Alors je l’écris à nouveau. Je ne suis pas un Troll"
 
 Sophie arrêta sa lecture.
+
 "Et ensuite il décrit les Trolls, leur vies et il donne des noms de lieu où il dit avoir découvert que des Trolls vivaient"
 
 "C'était peut-être un écrivain raté et tu as retrouvé son manuscrit" proposa Mathieu, avec toujours cette voix qui de manière inaudible par son intonation essayait de convaincre Sophie qu'elle perdait son temps, qu'elle devrait jeter tout ça à la poubelle.
@@ -113,11 +114,15 @@ C'est d'ailleurs à cause de ce don que la chasse aux sorcières a été lancé.
 Maléfiquement ironique n'est ce pas ?"
 
 Un lourd soupir se fit entendre. Sophie sursauta et referma le carnet tandis que Mathieu la toisait du regard.
+
 "Je ne comprends pas pourquoi tu réagis ainsi" demanda-t-elle
+
 'Parce que cela te chamboule, tu fais des cauchemars la nuit et tu dévores les pages écrites par un fou. Cela me stresse" répondit Mathieu, la voix caressante, aimante
+
 "Cela doit être ta grossesse, mais cela me rend protecteur et j'ai l'impression je ne sais pas, que lire ces carnets n'est pas bon pour toi"ajouta-t-il dans une semi tentative d'excuse.
 
 Elle sourit.
+
 "Mais je ne vais pas commencer à mettre du sel devant notre porte voyons, c'est juste que cela me fascine de lire tout ce qe ce malheureux a pu inventer. Mais très bien, demain je les jetterais. Je ne veux pas qu'on se dispute. Elle arrive bientôt et je veux que ses parents soient heureux"
 
 ~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~~
