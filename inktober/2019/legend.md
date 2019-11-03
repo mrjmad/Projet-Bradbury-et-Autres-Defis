@@ -12,7 +12,7 @@ Sa future femme venait de rentrer en serrant fermement contre elle une grosse bo
 
 "Le vendeur m'a dit que c'était une boite qui avait été retrouvé dans le sous-sol d'une maison qui avait complètement brûlée et que personne ne l'avais jamais encore ouverte"
 
-"et tu l'as cru ? La grossesse te rend vraiment crédule" ironisa Mathieu.
+"Et tu l'as cru ? La grossesse te rend vraiment crédule" ironisa Mathieu.
 
 "Bien entendu que non, on voit bien que le cadenas qui a été mis n'est pas aussi endommagé que le reste de la boite. Mais je me demande quand même ce qu'il y a dedans"
 
@@ -30,8 +30,7 @@ Sophie ouvrit lentement le couvercle de la boite. L'intérieur sentait un peu la
 
 Sophie sursauta, alors qu'elle fouillait encore dans la caisse, ce qui eu pour effet de la faire tomber.
 
-"Comment fais-tu pour faire en sorte d'avoir aussi réellement intéressé tout en
-laissant entendre qu'il n'y avait rien et que tu avais en fait raison ?"
+"Comment fais-tu pour faire en sorte d'avoir aussi réellement intéressé tout en laissant entendre qu'il n'y avait rien et que tu avais en fait raison ?"
 
 "Tu avais raison, il n'y avait que des choses sans intérêt, des bricoles"
 
@@ -74,12 +73,9 @@ Sophie arrêta sa lecture.
 
 "J'ai fait des recherches. Et il est mort dans l'incendie de sa maison, il y a un peu plus d'un an. Un incendie inexpliqué, à Marseille"
 
-"Ça explique l'état de la boite.
+"Ça explique l'état de la boite. Tu veux essayer de retrouver sa famille pour leur renvoyer ?"
 
-Tu veux essayer de retrouver sa famille pour leur renvoyer ?"
-
-"Dans les articles de presse que j'ai trouvé, ils disent qu'il n'avait pas de famille.
-Mais tu te rends compte, il dit plusieurs fois dans ses carnets que sa vie est menacée et il meurs mystérieusement, dans un incendie que les pompiers ne savent pas expliquer"
+"Dans les articles de presse que j'ai trouvé, ils disent qu'il n'avait pas de famille. Mais tu te rends compte, il dit plusieurs fois dans ses carnets que sa vie est menacée et il meurs mystérieusement, dans un incendie que les pompiers ne savent pas expliquer"
 
 "Sophie ??" la voix de Mathieu semblait douce et attendrie, mais elle était tendu, dure, presque autoritaire.
 
@@ -98,8 +94,7 @@ Mais tu te rends compte, il dit plusieurs fois dans ses carnets que sa vie est m
 
 ---------------------------------------------------
 
-"Je m’appelle Axel Basdges, ceci et mon journal testament et je le jure, je ne suis pas une
-Sorcière.  Cela peut vous sembler étrange de me lire écrire cela, mais j’ai appris que les Sorcières, comme les fées, les elfes, les lutins et toutes ces créatures étranges qui vivent autour de nous et jouent avec nous sans que nous nous en rendions compte ne peuvent mentir sur ceux qu’ils sont.
+"Je m’appelle Axel Basdges, ceci et mon journal testament et je le jure, je ne suis pas une Sorcière.  Cela peut vous sembler étrange de me lire écrire cela, mais j’ai appris que les Sorcières, comme les fées, les elfes, les lutins et toutes ces créatures étranges qui vivent autour de nous et jouent avec nous sans que nous nous en rendions compte ne peuvent mentir sur ceux qu’ils sont.
 
 Si vous demandez à une Sorcière de manière claire et explicite si c’est une Sorcière, elle sera forcée de vous répondre Oui. Et de même une fée ne pourra mentir en prétendant ne pas en être une, ni prétendre être un Troll.
 
@@ -150,9 +145,9 @@ Cela vous dit quelque chose ? Vous en avez peut-être déjà rencontrer un. Ils
 
 Elle s'arrêta.
 
-"Et si"
+"Et si ...
 
-"Mais ma fille, tu as vraiment un problème, maintenant tu te demandes si ton mari n'est pas un dragon. Tu m'exaspères"
+Mais ma fille, tu as vraiment un problème, maintenant tu te demandes si ton mari n'est pas un dragon. T m'exaspères"
 
 Décidant que se parler à elle-même n'était pas la meilleure preuve du fait qu'elle soit saine d'esprit, Sophie cacha à nouveau les carnets, lança un série et sirota son infusion.
 
@@ -160,11 +155,15 @@ Décidant que se parler à elle-même n'était pas la meilleure preuve du fait q
 ---------------------------------------------------
 
 "Hello, je suis rentré, tu es là ?  j'ai quelque chose pour toi" La voix de Mathieu était caramel, vibrante, câline. Sophie en frissonna en sentant les mots glissés sur sa peau.
+
 "Dans la cuisine" répondit-elle
 
 'Si tu es d'accord, on part en week-end, Londres, profitons en avant de ne plus trop pouvoir bouger' lança-t-il dans un grand sourire, deux billets d'avion à la main tandis qu'il l'enlaçait pour lui embrasser le cou.
 
-"Cherchez, mais cherchez discrètement. Parce que si sous forme humaine ils sont beaux et charismatique" Les mots du carnet résonnèrent dans la tête de Sophie. "Foutaises" leurs répondit-elle.
+"Cherchez, mais cherchez discrètement. Parce que si sous forme humaine ils sont beaux et charismatique" Les mots du carnet résonnèrent dans la tête de Sophie.
+
+"Foutaises" leurs répondit-elle.
+
 "Londres ? J'adorerais y retourner. Ça fait tellement longtemps. Ça serait merveilleux"
 
 
@@ -178,7 +177,8 @@ Sophie tricote une écharpe colorée.
 
 "Tu es folle ma fille" s'invectigue-t-elle
 
-"Mais le pouvoir de sa voix .. Et si .. Tu veux donner naissance à un monstre ? "
+"Mais le pouvoir de sa voix .. Et si .. Tu veux donner naissance à un monstre ? " murmura sa petite voix intérieure.
+
 
 Sophie n'arrive plus à tricoter. Ses pensées tournent dans sa tête. Elle voudrait se lever pour aller relire la page des dragons des carnets, pour que le ridicule des mots lui fasse oublier ses angoisses. Mais elle a peur de réveiller Mathieu ou qu'il la surprenne en pleine lecture alors qu'elle lui a dit avoir jeté les carnets.
 
@@ -188,8 +188,7 @@ Sophie n'arrive plus à tricoter. Ses pensées tournent dans sa tête. Elle voud
 
 "Tu seras sure, il ne se réveillera même pas"
 
-Le dialogue mental perdure. Sophie finie par se convaincre que le mieux pour elle c'est
-de se prouver que Mathieu est humain, que tout cela n'est qu'une élucubration du aux hormones.
+Le dialogue mental perdure. Sophie finie par se convaincre que le mieux pour elle c'est de se prouver que Mathieu est humain, que tout cela n'est qu'une élucubration du aux hormones.
 
 Elle prends son aiguille et tout doucement pique son compagnon.
 
@@ -212,4 +211,4 @@ Sophie regarde fixement le bras de celui qui est le père de l'enfant qui grandi
 
 "Tout aurait pu être tellement différent"
 
-Le sans c'est arrêté de couler. Sur le bras de Mathieu il ne reste plus que des traînées argentées. Sur le draps une petite tâche argentés elle aussi, brille au clair de lune.
+Le sang c'est arrêté de couler. Sur le bras de Mathieu il ne reste plus que des traînées argentées. Sur le draps une petite tâche argentés elle aussi, brille au clair de lune.
