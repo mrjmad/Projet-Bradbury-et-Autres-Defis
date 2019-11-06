@@ -52,13 +52,13 @@
 
  « Le bal est demain, je n’en dors plus depuis plusieurs jours, regardez les poches que j’ai sous les yeux, montrez moi donc ma parure » s’emporte légèrement la jeune femme qui vient de descendre de voiture.
 
- Le directeur tout sourire ouvre l’écrin lorsque sa cliente n’est plus qu’à deux pas de lui. Un bijou resplendissant apparaît alors. Il semble vivant. Sa couleur change lentement, passant d’un ton de violet à un autre, parfois sombre, parfois brillant. Il paraît vibrer, une lente mélodie que l’on sent dans ses tripes, qui fait naitre des odeurs de guimauves et d’après midi d’été.
+ Lorsque sa cliente n’est plus qu’à deux pas de lui, le directeur tout sourire ouvre l’écrin. Un bijou resplendissant apparaît alors. Il semble vivant. Sa couleur change lentement, passant d’un ton de violet à un autre, parfois sombre, parfois brillant. Il paraît vibrer, une lente mélodie que l’on sent dans ses tripes, qui fait naitre des odeurs de guimauves et d’après midi d’été.
 
- La jeune fille pourtant en perds les mots. Tant la main, n’ose le toucher, finit par le faire.
+ La jeune fille en perd ses mots. Elle tend la main, n’ose le toucher, finit par le faire.
 
  « Mais il est si doux … si chaud ... »
 
- « Vous voyez, je vous l’avais dit, il fallait laisser le temps à la greffe de prendre et de bien développer ses racines. Comme cela le bijou a pu se développer aspirer toute la vie et la joie de la fillette. Et il faut dire que Lana était une souche particulièrement admirable, comme on n’en voit pas souvent, de bien meilleure qualité que celle de l’année dernière »
+ « Vous voyez, je vous l’avais dit, il fallait laisser le temps à la greffe de prendre et de bien développer ses racines. Comme cela le bijou a pu lentement croitre. Il a vraiment pu aspirer toute la vie et la joie de la fillette. Et il faut dire que Lana était une souche particulièrement admirable, comme on n’en voit pas souvent, de bien meilleure qualité que celle de l’année dernière »
 
  « Les détails techniques ne m’intéresse vraiment pas vous savez .. »
 
