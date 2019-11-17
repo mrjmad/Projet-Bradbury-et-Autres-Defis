@@ -49,6 +49,7 @@
     * [Tasty](inktober/2019/tasty.md)
     * [Dark](inktober/2019/dark.md)
     * [Coat](inktober/2019/coat.md)
+    * [Ride](inktober/2019/ride.md)
     * [Injured](inktober/2019/injured.md)
     * [Catch](inktober/2019/catch.md)
     * [Ripe](inktober/2019/ripe.md)
