@@ -5,6 +5,7 @@
 
 « Vite, plus vite mon beau ». Aéla se tenait fermement aux rênes d’Hippolyte tout en l’encourageant en lui parlant à l’oreille.
 
+
 Grimaçant de douleur, elle se retourna autant que la flèche qui lui perçait le flanc le lui permettait. Leur poursuivants se rapprochaient. Ils allaient bientôt pouvoir tirer à nouveau. Flèches ou magie cela n’aurait pas d’importance. Ils ne les raterait pas. Et ni elle ni Hippolyte n’en réchapperaient.
 
 Elle tata à nouveau ses poches, espérant cette fois trouver quelques choses qui pourraient les sauver. Mais non rien. Son maître d’arme lui passerait un de ses savons. On se préparait toujours au pire, même quand on prévoyait de se rendre au festival de la tourte à la citrouille. Elle l’entendait déjà lui hurler dessus. Comment avait-elle pu partir rejoindre une chasse royale où on lui avait explicitement interdit d’aller et ne pas penser à prendre un minimum de ce qu’il appelait les ‘au cas où’ ?
