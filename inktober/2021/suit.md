@@ -10,7 +10,6 @@ Le lourd silence qui avait recouvert la salle ouverte des enquêteurs se dissipa
 
 ---
 
-
 « Alors Spinor, vous avez du nouveau ? Une piste, des indices ? Les journalistes lui ont donné un nom vous savez, l’équarrisseur !! » lance le capitaine tout en jetant un journal vers Spinor lorsque celui-ci entre dans le bureau.
 
 Le pauvre Spinor en essayant de rattraper le projectile de papier au vol, laisse échapper ses dossiers qui rependent leur contenu au sol. Photos de scènes de crime, de cadavre humain en noir et blanc, compte rendu d’autopsie, plan, notes, tout s’éparpille.
@@ -32,7 +31,7 @@ Les vitres du bureau tremblaient sous la puissance de la voix du capitaine. Un C
 « Ce que je sais, c’est que ce commissariat est rempli d’idiots et que c’est le cas depuis à priori trois cents ans, si je dois en croire ce torche-cul, vu que cela fait trois cents ans que vous et vos prédécesseurs n’arrivaient pas à le mettre sous les verrous !!!! Faites votre travail bon sang Spinor, sinon, vous n’en aurez bientôt plus !!
 
 
-_________________________________________________
+---
 
 
 Un grand couloir glacé, blanc, noir, parfois bleu. Iel se déplace lentement, sans vraie forme, parfois grand, parfois petite, une silhouette mouvante, changeante, mais toujours grise.
