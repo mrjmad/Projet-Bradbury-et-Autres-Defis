@@ -32,7 +32,7 @@ Les vitres du bureau tremblaient sous la puissance de la voix du capitaine. Un C
 « Ce que je sais, c’est que ce commissariat est rempli d’idiots et que c’est le cas depuis à priori trois cents ans, si je dois en croire ce torche-cul, vu que cela fait trois cents ans que vous et vos prédécesseurs n’arrivaient pas à le mettre sous les verrous !!!! Faites votre travail bon sang Spinor, sinon, vous n’en aurez bientôt plus !!
 
 
-***
+_________________________________________________
 
 
 Un grand couloir glacé, blanc, noir, parfois bleu. Iel se déplace lentement, sans vraie forme, parfois grand, parfois petite, une silhouette mouvante, changeante, mais toujours grise.
