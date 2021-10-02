@@ -17,7 +17,7 @@ Cristal
 
 « Ce n’est pas mon père, ce n’est plus mon père » La jeune femme tentait visiblement de se contrôler pour ne pas laisser éclater sa colère… « Il n’est plus mon père depuis qu’il nous a abandonné, pour moi il est mort maman. Et ça me rend folle de voir que tu gâches ta vie à l’attendre, ça me rend folle maman. ».
 
----
+.....................................................
 
 « Mathilde, tu aurais pu ranger tes jouets » soupire intérieurement Marie en marchant sur le cristal oublié sur le tapis. Alors qu’elle se baisse pour le ramasser, une petite imperfection attire son regard.
 
@@ -31,7 +31,7 @@ Elle pose le cristal sur le coffre à jouet.
 
 Elle posa son livre, pris un chiffon doux et se résolu à venir à bout de la tâche.
 
----
+.....................................................
 
 En nage et passablement énervée elle jeta le chiffon au sol. Rien n’y faisait cette foutue tache était toujours là.
 
@@ -64,7 +64,7 @@ Rouge, rouge et vert.
 Comme celui de son père.
 
 
----
+.....................................................
 
 « Maman ?? »
 
