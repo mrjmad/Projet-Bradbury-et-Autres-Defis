@@ -11,11 +11,11 @@ Le lourd silence qui avait recouvert la salle ouverte des enquêteurs se dissipa
 -----
 « Alors Spinor, vous avez du nouveau ? Une piste, des indices ? Les journalistes lui ont donné un nom vous savez, l’équarrisseur !! » lance le capitaine tout en jetant un journal vers Spinor lorsque celui-ci entre dans le bureau.
 
-Le pauvre Spinor qui en essayant de rattraper le projectile de papier au vol, laisse échapper ses dossiers qui rependent leur contenu au sol. Photos de scènes de crime, de cadavre humain en noir et blanc, compte rendu d’autopsie, plan, notes, tout s’éparpille.
+Le pauvre Spinor en essayant de rattraper le projectile de papier au vol, laisse échapper ses dossiers qui rependent leur contenu au sol. Photos de scènes de crime, de cadavre humain en noir et blanc, compte rendu d’autopsie, plan, notes, tout s’éparpille.
 
 « Il y a six cadavres à morgue, six cadavres auxquels il manque leur peau, toute leur peau et leur yeux !!  Ce malade leur a même arraché les yeux »
 
-Les décibels de la première phrase aurait gentiment réveillé les morts si le commissariat s’était trouvé un peu plus prêt du cimetière de la ville. Pourtant chaque phrase suivante était hurlé un peu plus que la précédente.
+Les décibels de la première phrase aurait gentiment réveillé les morts si le commissariat s’était trouvé un peu plus prêt du cimetière de la ville. Pourtant chaque phrase suivante était hurlé un peu plus que la précédente. Le téléphone en bakélite posé sur le bureau en tremblait.
 
 « Et vous ? Vous faites quoi Spinor ? A part mettre le bordel dans mon bureau avec vos papiers inutiles ? Rien RIEN »
 
