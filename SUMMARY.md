@@ -55,3 +55,4 @@
     * [Ripe](inktober/2019/ripe.md)
   * Inktober 2021
     * [Crystal](inktober/2021/crystal.md)
+    * [Suit](inktober/2021/suit.md)
