@@ -26,7 +26,7 @@ Les vitres du bureau tremblaient sous la puissance de la voix du capitaine. Un C
 
 « Vous ne faites rien, vous êtes des bons à rien. Je ferrais mieux d’engager les journalistes de ces foutus torchons pour venir faire votre travail. Vous devriez lire l’article du jour. En plus de lui trouver un nom, ils ont découvert que le même type de meurtre se répétait, régulièrement, tout les 50 ans !!! »
 
-« Nous le savions déjà cela Monsieur, je vous l’avais indiqué dans mon précédent mémo, il semblerait effectivement que nous ayons à faire à une lignée d’imitateur, peu être un groupe sataniste ou autre, nous ne savons pas encore .. »
+« Nous le savions déjà cela Monsieur, je vous l’avais indiqué dans mon précédent mémo, il semblerait effectivement que nous ayons à faire à une lignée d’imitateurs, peut-être un groupe sataniste ou autre, nous ne savons pas encore .. »
 
 « Ce que je sais, c’est que ce commissariat est rempli d’idiots et que c’est le cas depuis à priori trois cents ans, si je dois en croire ce torche-cul, vu que cela fait trois cents ans que vous et vos prédécesseurs n’arrivaient pas à le mettre sous les verrous !!!! Faites votre travail bon sang Spinor, sinon, vous n’en aurez bientôt plus !!
 
