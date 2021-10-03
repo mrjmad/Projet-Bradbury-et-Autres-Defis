@@ -41,7 +41,7 @@ ELLE psalmodie, des mots que nul ne devrait entendre ,que nul ne devrait compren
 
 Le cristal flotte lentement devant ELLE. Ses longs cheveux sont droits, tendus comme une couronne de lames sortant de son crâne.
 
-Le sang ne coule plus de sa blessure, il coule en l’air vers le cristal qui tourne de plus en plus vite, pulsant d’une légère lueur rosé.
+Le sang ne coule de sa blessure vers le sol, il coule en l’air vers le cristal qui tourne de plus en plus vite, pulsant d’une légère lueur rosé.
 
 Le son n’existe plus, le temps n’existe plus, tout se fige et ELLE continue à psalmodier.
 
