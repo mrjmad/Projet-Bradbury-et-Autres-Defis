@@ -14,7 +14,7 @@ Petit à petit, perdant cent hommes pour chaque mètre gagné, ils avancent.
 
 Engoncés dans leurs armures, à moitié aveuglés par la pluie, la boue, le sang, ils continuent d’avancer.
 
-Des bulles  d’obscurité apparaissent sur la plaine. Des hurlements s’y déchaînent. Et pourtant les chevaliers gagnent toujours du terrain. Mètres après mètre ils avancent, ne distinguant leur main que grâce à la faible lumière de la lampe à pétrole qu’ils ont tous, soudée sur le haut de leurs casques.
+Des bulles d’obscurité apparaissent sur la plaine. Des hurlements s’y déchaînent. Et pourtant les chevaliers gagnent toujours du terrain. Mètres après mètre ils avancent, ne distinguant leur main que grâce à la faible lumière de la lampe à pétrole qu’ils ont tous, soudée sur le haut de leurs casques.
 
 
 La musique des tambours reprend peu à peu vie, poussant les hommes, grondant avec forces, luttant contre les éléments, recouvrant le bruit de la pluie, les grognements des monstres.
