@@ -14,7 +14,7 @@ Petit à petit, perdant cent hommes pour chaque mètre gagné, ils avancent.
 
 Engoncés dans leurs armures, à moitié aveuglés par la pluie, la boue, le sang, ils continuent d’avancer.
 
-Des bulles d’obscurité apparaissent sur la plaine. Des hurlements s’y déchaînent. Et pourtant les chevaliers gagnent toujours du terrain. Mètres après mètre ils avancent, ne distinguant leur main que grâce à la faible lumière de la lampe à pétrole qu’ils ont tous, soudée sur le haut de leurs casques.
+Des bulles d’obscurité apparaissent sur la plaine. Des hurlements s’y déchaînent. Et pourtant les chevaliers gagnent toujours du terrain. Mètre après mètre ils avancent, ne distinguant leurs mains que grâce à la faible lumière de la lampe à pétrole qu’ils ont tous, soudée sur le haut de leurs casques.
 
 
 La musique des tambours reprend peu à peu vie, poussant les hommes, grondant avec forces, luttant contre les éléments, recouvrant le bruit de la pluie, les grognements des monstres.
@@ -27,12 +27,12 @@ Certains des chevaliers tente de s’enfuir, tournant le dos à l’ennemi, tell
 
 Le monstrueux bateau s’approche, propulsé par plusieurs rangs de rames actionnées par des choses moitié cadavres d’anciens marins morts noyés, moitié excroissances du bateau lui-même.
 
-Et pourtant, ce n’est pas le bateau qui rempli d’horreur les chevaliers, non c’est ELLE, la silhouette se tient sur une plateforme en haut du bas.
+Et pourtant, ce n’est pas le bateau qui rempli d’horreur les chevaliers, non c’est ELLE, la silhouette se tient sur une plateforme en haut du mât.
 
 Son pouvoir tourbillonne autour d’ELLE, empêchant les combattants de la voir, mais tous sentent la pression de son aura sur leur âme, tous entendent les murmures de folie qu’ELLE murmure à leurs oreilles.
 Au loin, sur une colline surplombant la bataille, les tambours essaient de lutter contre la vague d’horreur en jouant plus fort, toujours plus fort. Mais les généraux ont déjà abandonné, ils galopent à bride abattue espérant sauver leur vie avant qu’ELLE ne déchaîne sa magie.
 
-Dans sa main gauche, ELLE tient une Athamé dont la lame de rubis rougeoie légèrement.
+Dans sa main gauche, ELLE tient un Athamé dont la lame de rubis rougeoie légèrement.
 « J’ai été ton réceptacle depuis tant de siècles, tu t’es nourries de ma magie, maintenant donne-moi ton pouvoir et consume le monde » hurle la Sorcière sur la plateforme tout en s’ouvrant l’abdomen avec l’Athamée.
 
 ELLE enfonce sa main droite, fouille en son sein et finit par en ressortir un gros cristal sanguinolent.
