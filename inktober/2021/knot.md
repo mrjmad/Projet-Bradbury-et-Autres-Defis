@@ -23,7 +23,7 @@ Et pourtant, en cette fin d’après-midi froide d’hiver, la lourde porte s’
 
 
 Les coups pleuvent, choc mou de poings contre la chair. Un coup, un hurlement, un coup, un hurlement. Chant en canon de la torture.
-« Alors papy, tu vas nous dire ou il est le Capucin de plomb ? C’est que Pierrot va finir par se faire mal aux mains à force de taper » interroge l’homme en faisant signe à son comparse de stopper la pluie de coups.
+« Alors papy, tu vas nous dire où il est le Capucin de plomb ? C’est que Pierrot va finir par se faire mal aux mains à force de taper » interroge l’homme en faisant signe à son comparse de stopper la pluie de coups.
 « je … je .. ne sais .. pas .. » essaie d’articuler le malheureux tenancier de la boutique, le visage tuméfié, les lèvres éclatées tout en crachant du sang.
 « Tu veux vraiment énerver Pierrot papy… » reprend l’homme.
 « Alors je vais te rafraîchir un peu la mémoire » poursuit-il.
