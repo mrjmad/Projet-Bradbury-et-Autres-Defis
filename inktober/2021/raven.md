@@ -36,8 +36,6 @@ Il sait qui appeler. Le haïku d’invocation est là, dans son esprit, gorgé d
 « Mais oui, je suis sûr que derrière cette crête là-bas, on verra un village, pas loin »
 
 
-
-
 Une détonation.
 
 
