@@ -11,17 +11,17 @@ L’homme avance péniblement, en boitillant, tirant une mule récalcitrante der
 Il neige à nouveau. Le silence et le froid recouvre tout. Parfois un craquement. Une branche qui cède sous le poids des flocons. Et quelques secondes après le choc sourd de la neige, comme un corps qui s’écrase.
 
 « Allez vieille carne, encore quelques heures et on monte le campement. »
-« Oui, je sais cette opération est un fiasco, le customard n’était pas là»
+« Oui, je sais cette opération est un fiasco, le costumard n’était pas là»
 « Oui, je sais, on n’a pas retrouvé le cristal non plus »
 
 L’homme boitille de plus en plus, derrière lui, de petites gouttes rouge brillent sur la neige. Il avance, de plus en plus lentement, une main tirant la longe de la mule l’autre, se tenant le ventre.
 
 « D’accord, le change-forme n’était pas là, l’information était pourrie»
-« Mais au moins on aura nettoyé un nid de goule, et un de belle taille en plus, l ‘information n’était pas tout à fait inutile »
+« Mais au moins on aura nettoyé un nid de goules, et un de belle taille en plus, l ‘information n’était pas tout à fait inutile »
 
 Une nouvelle aube qui se lève. Combien en verra-t-il encore ? Il faut continuer, marcher encore, pas après pas. Mais sans aide il n’y arrivera pas. Il faut trouver de l’aide. Mais qui … comment .. qui répondra à un appel
 
-« Tu as raison vieille carne, contre un nid de goule, on n’envoie pas une mission d’infiltration. Mais un bataillon de nettoyeur. »
+« Tu as raison vieille carne, contre un nid de goules, on n’envoie pas une mission d’infiltration. Mais un bataillon de nettoyeur. »
 « Mais écoute, on a fait le travail non ? Et bien fait en plus »
 « Comment je vais ? »
 « Sans aide, je crois que je vais mourir »
