@@ -60,3 +60,4 @@
     * [Knot](inktober/2021/knot.md)
     * [Raven](inktober/2021/raven.md)
     * [Spirit](inktober/2021/spirit.md)
+    * [Fan](inktober/2021/fan.md)
