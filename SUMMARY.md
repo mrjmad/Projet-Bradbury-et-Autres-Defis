@@ -59,3 +59,4 @@
     * [Vessel](inktober/2021/vessel.md)
     * [Knot](inktober/2021/knot.md)
     * [Raven](inktober/2021/raven.md)
+    * [Spirit](inktober/2021/spirit.md)
