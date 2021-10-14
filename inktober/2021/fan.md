@@ -43,7 +43,7 @@ Le tonnerre des armes se déchaîne. Les balles sifflent, déchiquettent. Bient�
 « Comment va-ton faire ? Je ne peux pas m’approcher, cela pue trop » demande Jean entre deux gerbes de vomi. 
 « C’est là qu’intervient le sac à dos de notre cher Percival » rit Arthur. 
 
-« N’oubliez pas de mettre vos gants avant d’aller récupérer les cristaux » rappelle Percival en ouvrant grand son sac à dos »
+« N’oubliez pas de mettre vos gants avant d’aller récupérer les cristaux » rappelle Percival en ouvrant grand son sac à dos.
 
 « Oui parce qu’il va falloir plonger la main tout au fond des entrailles et fouiller dans les intestins pour les trouver les cristaux » ajoute Arthur en mimant la scène, provoquant une nouvelle crise de vomissement. 
 
