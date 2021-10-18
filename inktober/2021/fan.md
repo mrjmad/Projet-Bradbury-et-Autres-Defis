@@ -9,7 +9,7 @@ Les quatre hommes marchent lentement, prenant garde à chacun de leur pas, évit
 « Si tu penses que tu pourrais faire moins de bruit Jules, tu n’as qu’à porter la Lewis toi-même. Et moi je porterai ton petit pistolet mitrailleur à la place» répond sur le même ton énervé celui qui se nomme Arthur tout en faisant mime de décrocher l’imposant fusil mitrailleur de son dos. 
 
 « C’est bon, c’est bon, essaie simplement de faire attention »
-« Mais taisez-vous, par l’enfer, vous pépiez plus qu’un troupeau de femme dans un salon de thé » réagit celui qui semble diriger la petite troupe.
+« Mais taisez-vous, par l’enfer, vous pépiez plus qu’un troupeau de femmes dans un salon de thé » réagit celui qui semble diriger la petite troupe.
 
 « Et Jean, fait attention avec les SIG, ils sont assez sensibles, affronter des goules est bien assez dangereux, pas besoin de rendre les choses plus difficiles en tirant sur tes équipiers » rajoute-t-il en direction du dernier des compagnons.
 
