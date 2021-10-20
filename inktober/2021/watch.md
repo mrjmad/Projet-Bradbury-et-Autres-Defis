@@ -4,11 +4,11 @@
 
 La nuit était froide, sans lune. Quelques rares étoiles tentent d’être visible à travers les nuages qui recouvrent le ciel. Il a plu il y a peu, l’air encore un peu humide sent presque bon, comme s’il sortait du bac d’une lavandière. 
 
-Percival marche d’un pas rapide, sans vraiment se soucier des directions il prend. Sur un coup de tête, il change de rue, revient sur ses pas, se retournant parfois brusquement pour vérifier que personne ne le suit. 
+Percival marche d’un pas rapide, sans vraiment se soucier des directions qu'il prend. Sur un coup de tête, il change de rue, revient sur ses pas, se retournant parfois brusquement pour vérifier que personne ne le suit. 
 
 Il devrait être chez lui, avec sa femme et son jeune fils. Tranquillement installé dans son fauteuil à lire un livre en sirotant un digestif. 
 
-Et pourtant il marche. Espérant vainement que peu être s’il marche suffisamment longtemps, il pourra faire comme si ses soucis n’existaient pas. Il pourra prétendre ne pas savoir ce qu’il sait, ne pas se souvenir de ce qu’il a vu, appris. 
+Et pourtant il marche. Espérant vainement que peut-être s’il marche suffisamment longtemps, il pourra faire comme si ses soucis n’existaient pas. Il pourra prétendre ne pas savoir ce qu’il sait, ne pas se souvenir de ce qu’il a vu, appris. 
 
 La lumière blanche, sans vie, des éclairages publics électriques l’accompagne. Il soupire, il se souvient d’avant, des lampes de gaz et de leur lumière qui lui semblait si vivantes. Il les regrette. La lumière électrique est trop blanche, trop morte.
 
@@ -16,7 +16,7 @@ La lumière blanche, sans vie, des éclairages publics électriques l’accompag
 Il faut qu’il trouve une solution. Son fils, le roi corbeau, et ces meurtres horribles, la signature d’une créature que le Groupe pensait détruite … Il a besoin de temps pour penser, pour réfléchir, pour trouver une solution.
 
 
-Ses pas l’ont amené dans un quartier de la ville qu’il n’avait plus parcourue depuis de nombreuses années. Il reconnaît pourtant les boutiques qu’il fréquentait alors, la boulangerie, le maraîcher et le fleuriste avec la jeune apprentie qu’il avait à l’époque courtisée. 
+Ses pas l’ont amené dans un quartier de la ville qu’il n’avait plus parcouru depuis de nombreuses années. Il reconnaît pourtant les boutiques qu’il fréquentait alors, la boulangerie, le maraîcher et le fleuriste avec la jeune apprentie qu’il avait à l’époque courtisée. 
 
 En se retournant pour partir, reprendre son errance nocturne, il aperçoit d’un coin de l’œil quelque chose d’étrange, comme en surimpression de la porte de la boulangerie. On dirait un cadran d’horloge ou une serrure, les aiguilles ressemblant à un trou de serrure positionné à six heures.
 
@@ -26,7 +26,7 @@ Il reprend sa marche, cherchant des solutions, cherchant du temps.
 
 Là, encore. L’horloge, la serrure. 
 
-Il se retourne, il est sur qu’au coin de son champ de vision, la porte de l’immeuble qu’il vient de dépasser n’était plus une porte mais le cadran, encore. 
+Il se retourne, il est sûr qu’au coin de son champ de vision, la porte de l’immeuble qu’il vient de dépasser n’était plus une porte mais le cadran, encore. 
 
 Un Autre se manifesterait-il ? Aurait-il s’en le vouloir formuler un appel qui aurait été entendu. Depuis les événements, les interactions avec les autres sont formellement interdites. Hormis les mises à mort, bien entendu. 
 
@@ -44,7 +44,7 @@ Il a traversé l’horloge.
 
 Il est .. 
 
-Il ne sait pas ou il est. Le sol est égal aux murs et au plafond. Partout des cadrans, de montre, d’horloge, solaire, ornés, enluminés ou simplement gravés. Il marche sans avancer, les aiguilles tournent au sol, sur les murs. 
+Il ne sait pas où il est. Le sol est égal aux murs et au plafond. Partout des cadrans, de montre, d’horloge, solaire, ornés, enluminés ou simplement gravés. Il marche sans avancer, les aiguilles tournent au sol, sur les murs. 
 
 
 Les entrelacs de cadran et d’aiguilles finissent par dessiner un visage sur ce que Percival a décidé de nommer mur, dans la direction qu’il a décidé de nommer devant. 
@@ -72,4 +72,4 @@ Le visage montre semble rire.
 
 La nuit de nouveau, désorienté Percival trébuche, tombe, se rattrape à un candélabre en fonte. L’Autre n’est plus là. Un mardi à 8h34, les mots sont gravés dans son esprit. 
 
-Déjà Percival doute. Est arrivé ? Était-ce un rêve éveillé ? 
+Déjà Percival doute. Est-ce arrivé ? Était-ce un rêve éveillé ? 
