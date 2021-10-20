@@ -5,10 +5,10 @@
 
 Cristal
 
-« Ma chérie, avec quoi est ce que tu joues ? »
+« Ma chérie, avec quoi est ce que tu joues ? »  
 « C’est un cristal magique Maman. Je l’ai trouvé dans le grenier, quand j’aidais mamie à ranger des affaires » répondit la petite fille tout en continuant à disposer ses poupées en cercle autour d’un gros cristal légèrement rosé.
 
-« Mathilde m’a dit que tu lui avais donné un truc trouvé dans le grenier ? »
+« Mathilde m’a dit que tu lui avais donné un truc trouvé dans le grenier ? »  
 « Oui, je voulais faire un peu de rangement dans les affaires de ton père et elle l’a trouvé glissé sous une des armoires, je ne l’avais jamais vu, je lui ai donné »
 
 « Tu sais maman, il ne reviendra plus, ça fait plus de vingt ans maintenant qu’il est parti, tu devrais brûler ses affaires »
