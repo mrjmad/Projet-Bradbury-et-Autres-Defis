@@ -59,7 +59,7 @@ L’homme a perdu espoir, il pleure sa mule, attends la mort, joue avec l’idé
 
 Le bruit le réveille. Des vagues de croassement jaillissent de la plus grosse nuée qu’il n’est jamais vu.    Et pourtant elle grossit encore, des corbeaux arrivant de toutes les directions, croassant, battant des ailes, s’intégrant à la nuée qui tourne au-dessus de lui.
 
-L’appel a fonctionné, bien plus qu’il ne l’espérait. Quel esprit a-t-il invoqué.
+L’appel a fonctionné, bien plus qu’il ne l’espérait. Quel esprit a-t-il invoqué ?
 
 Quelques corbeaux se détachent de la nuée et fondent vers la carcasse de la mule. Puis d’autre et  encore d’autre. Le festin commence. Les bruits de becs se mélangent aux croassements et aux battements d’aile. La nuée dévore.
 
