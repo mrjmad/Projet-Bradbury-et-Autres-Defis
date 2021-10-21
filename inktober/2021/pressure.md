@@ -63,10 +63,10 @@ Grégoire ne comprend plus rien. Il vit encore. Et pourtant il n’est plus qu�
 Cossus referme le grimoire et soulève la jarre de verre. 
 
 « Une vraie réussite, comme toujours.»  décrète-t-il.   
-Mais tu sembles étonné d’être encore en vie ?  
-Il faut que la tête soit en vie pour pouvoir stocker la magie, voyons mon cher Grégoire.  
+Mais tu sembles étonné d’être encore en vie Grégoire?  
+Il faut évidement que la tête soit en vie pour pouvoir stocker la magie, voyons mon cher.  
 Pourquoi penses-tu que l’on s’embête à coudre les lèvres des  tsantzas ?  
 C’est pour ne pas avoir à les entendre parler bien entendu.  
-Il parait que vous avez un peu trop tendance à hurler des horreurs et qu'au bout de quelques centaines d'années de vies, vous avez tendances à devenir folle...
+Il parait que vous avez un peu trop pour habitude de hurler des horreurs et qu'au bout de quelques centaines d'années de vies, vous avez tendance à toutes devenir folles...
 
-D’ailleurs où ai-je donc laisser mes aiguilles et mon fil ? »  
+D’ailleurs où ai-je donc laissé mes aiguilles et mon fil ? »  
