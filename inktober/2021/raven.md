@@ -35,8 +35,10 @@ Il sait qui appeler. Le haïku d’invocation est là, dans son esprit, gorgé d
 « On va y arriver, la mule »
 « Mais oui, je suis sûr que derrière cette crête là-bas, on verra un village, pas loin »
 
+Mais non, rien, rien d'autre que la neige à perte de vue.  
 
-Une détonation.
+
+La détonation séche d'un coup de feu retentit dans le silence.  
 
 
 L’homme récite les mots, la magie remplie son esprit, la magie forme son appel, il sent le pouvoir, il sent l’appel.
@@ -55,7 +57,7 @@ Passent les heures.
 L’homme a perdu espoir, il pleure sa mule, attends la mort, joue avec l’idée de se la donner.
 
 
-Le bruit le réveil. Des vagues de croassement jaillissent de la plus grosse nuée qu’il n’est jamais vu.    Et pourtant elle grossit encore, des corbeaux arrivant de toutes les directions, croassant, battant des ailes, s’intégrant à la nuée qui tourne au-dessus de lui.
+Le bruit le réveille. Des vagues de croassement jaillissent de la plus grosse nuée qu’il n’est jamais vu.    Et pourtant elle grossit encore, des corbeaux arrivant de toutes les directions, croassant, battant des ailes, s’intégrant à la nuée qui tourne au-dessus de lui.
 
 L’appel a fonctionné, bien plus qu’il ne l’espérait. Quel esprit a-t-il invoqué.
 
