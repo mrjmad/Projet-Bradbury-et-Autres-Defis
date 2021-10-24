@@ -4,7 +4,7 @@
 
 
 
-Il se réveille lentement, un diabolique mal au crâne lui vrillant les tempes. Ses pensées se brouillent tandis qu’il clique plusieurs fois des yeux. 
+Il se réveille lentement, un diabolique mal au crâne lui vrillant les tempes. Ses pensées se brouillent tandis qu’il cligne plusieurs fois des yeux. 
 
 Il a tellement mal à la tête qu’il voie flou, comme s’il avait la tête enfoncée dans un bocal à poisson. Son cou est douloureux, comme bloqué. Il tente de se retourner pour soulager la douleur et s’aperçoit alors qu’il ne peut pas. Il est attaché.
 
@@ -18,7 +18,7 @@ La voix est étrange, légèrement chuintante.
 
 Grégoire essaie de parler, de hurler, mais il a beau essayer, aucun son ne se fait entendre. C’est alors qu’il voit enfin ou plutôt malheureusement le propriétaire de la voix qu’il a entendue. 
 
-La silhouette est difforme, boiteuse. Il ne peut voir le visage caché derrière à un masque de docteur la peste. Il ne peut voit que quelques touches de cheveux raides et couleurs cendres qui parsèment un crâne à la peau verdâtre et fripée. 
+La silhouette est difforme, boiteuse. Il ne peut voir le visage caché derrière un masque de docteur la peste. Il ne qu'apercevoir quelques touches de cheveux raides et couleurs cendres qui parsèment un crâne à la peau verdâtre et fripée. 
 
 « Ne vous fatiguez pas mon cher, l’ustensile dans lequel se trouve votre tête a pour fonction, entre autre, de vous empêchez de crier » explique la silhouette.  
 « Ce n’est pas que vous pourriez alerter quelqu’un, même en vous époumonant pendant des heures, mais j’ai les oreilles plutôt sensibles, les hurlements me donnent de terribles migraines. » continue en laissant échapper un petit rire l’homme caché derrière le masque.
@@ -37,7 +37,7 @@ Et c’est là que vous entrez en scène, messire. Parce que pour confectionner 
 
 Après tout, je n’allais pas livrer ma propre tête » s’esclaffe l’homme qui se fait appeler Cossus. 
 
-« J’ai été kidnappé par un fou qui va m’empoisonner avant de me décapiter » pensait Grégoire qui essayait toujours de se dégager en tirant de toute la force de ses muscles sur les liens qui le retenait. 
+« J’ai été kidnappé par un fou qui va m’empoisonner avant de me décapiter » pensait Grégoire qui essayait toujours de se dégager en tirant de toute la force de ses muscles sur les liens qui le retenaient. 
 
 Mais rien n’y faisait, et il se sentait en même temps si faible….
 
@@ -50,11 +50,11 @@ Au début, Grégoire ne se rendit compte de rien. Et puis, petit à petit un pet
 
 Comme si quelqu’un tenait sa tête entre ses mains et serrait encore et encore. 
 
-La douleur s’amplifie. Ce qui n’était qu’un simple inconfort il y a quelques instants l’empêche maintenant de réfléchir . La pression augmente encore autour de sa tête. Il aimerait tellement hurler tandis qu’il sente ses os se casser, se raccourcir. 
+La douleur s’amplifie. Ce qui n’était qu’un simple inconfort il y a quelques instants l’empêche maintenant de réfléchir . La pression augmente encore autour de sa tête. Il aimerait tellement hurler tandis qu’il sent ses os se casser, se raccourcir. 
 
-Sa vision diminue, devenant encore plus vague, plus floue comme si ses yeux s’éloignaient de la paroi de la boule ou il est enfermé. 
+Sa vision diminue, devenant encore plus vague, plus floue comme si ses yeux s’éloignaient de la paroi de la boule où il est enfermé.  
 
-Son supplice semble durer pendant des heures, des heures de torture, la pression ne cessant de broyer sa tête, seconde après seconde, minutes après minutes. 
+Son supplice semble durer pendant des heures, des heures de torture, la pression ne cessant de broyer sa tête, seconde après seconde, minute après minute.  
 
 Et puis soudain, accompagné d’un horrible bruit humide, sa tête se détache et roule au fond du vase en verre. 
 
