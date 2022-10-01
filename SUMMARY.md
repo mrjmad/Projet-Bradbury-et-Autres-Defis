@@ -63,3 +63,5 @@
     * [Fan](inktober/2021/fan.md)
     * [Watch](inktober/2021/watch.md)
     * [Pressure](inktober/2021/pressure.md)
+  * Inktober 2022
+    * [Gargoyle](inktober/2022/gargoyle.md)
