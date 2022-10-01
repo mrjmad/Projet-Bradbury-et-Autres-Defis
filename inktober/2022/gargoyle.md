@@ -1,6 +1,6 @@
 # Gargoyle 
 
-* traduction : gargouille * 
+*traduction : gargouille* 
 
 
 Au début, au début, il n’y avait rien. Je ne m’en souviens pas vraiment. Je n’étais pas vraiment là.  
