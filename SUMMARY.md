@@ -65,3 +65,4 @@
     * [Pressure](inktober/2021/pressure.md)
   * Inktober 2022
     * [Gargoyle](inktober/2022/gargoyle.md)
+    * [Scurry](inktober/2022/scurry.md)
