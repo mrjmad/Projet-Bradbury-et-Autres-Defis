@@ -66,3 +66,4 @@
   * Inktober 2022
     * [Gargoyle](inktober/2022/gargoyle.md)
     * [Scurry](inktober/2022/scurry.md)
+    * [Bat](inktober/2022/bat.md)
