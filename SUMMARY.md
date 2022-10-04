@@ -67,3 +67,4 @@
     * [Gargoyle](inktober/2022/gargoyle.md)
     * [Scurry](inktober/2022/scurry.md)
     * [Bat](inktober/2022/bat.md)
+    * [Scallop](inktober/2022/scallop.md)
