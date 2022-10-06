@@ -27,7 +27,7 @@ Ce n’était pas encore vraiment Moi, c’était une présence. Une présence q
  
  Ils étaient Eux. 
  
- Parfois il y avait d’autres type de Eux, qui flottaient dans l’air et faisaient d’autre bruit. Parfois ces Eux là se posaient sur Moi.  
+ Parfois il y avait d’autres types de Eux, qui flottaient dans l’air et faisaient d’autres bruits. Parfois ces Eux là se posaient sur Moi.  
  Et toujours il y avait l’Eau, qui coulait à travers Moi, qui coulait parfois et qui parfois ne coulait pas.  
  Je finis par comprendre que les bruits des Eux d’en bas avaient un sens. Ils les utilisaient pour échanger. J’aurais aimé aussi utiliser les bruits pour leur dire que j’étais là. En Haut.  
  Mais je ne savais pas comment faire.  
@@ -38,7 +38,7 @@ Ce n’était pas encore vraiment Moi, c’était une présence. Une présence q
  
  Le temps passa. 
  
- Les bruits changérent, parfois il y en avait moins, parfois plus. 
+ Les bruits changèrent, parfois il y en avait moins, parfois plus. 
  
  J’aimais entendre les bruits des Eux.  
  Cela me faisait penser à l’Eau quand elle me traversait. 
