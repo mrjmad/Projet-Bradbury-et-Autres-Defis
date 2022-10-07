@@ -69,3 +69,4 @@
     * [Bat](inktober/2022/bat.md)
     * [Scallop](inktober/2022/scallop.md)
     * [Flamme](inktober/2022/flamme.md)
+    * [Bouquet](inktober/2022/bouquet.md)
