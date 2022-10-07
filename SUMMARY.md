@@ -70,4 +70,4 @@
     * [Scallop](inktober/2022/scallop.md)
     * [Flamme](inktober/2022/flamme.md)
     * [Bouquet](inktober/2022/bouquet.md)
-    * [trip](inktober/2022/trip.md)
+    * [Trip](inktober/2022/trip.md)
