@@ -73,3 +73,5 @@
     * [Trip](inktober/2022/trip.md)
     * [Match](inktober/2022/match.md)
     * [Nest](inktober/2022/nest.md)
+  * Inktober 2023
+    * [Dream](inktober/2023/dream.md)
