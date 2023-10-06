@@ -75,3 +75,5 @@
     * [Nest](inktober/2022/nest.md)
   * Inktober 2023
     * [Dream](inktober/2023/dream.md)
+    * [Spiders](inktober/2023/spiders.md)
+    * [Path](inktober/2023/path.md)
