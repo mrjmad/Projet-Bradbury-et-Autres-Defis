@@ -39,7 +39,7 @@ Coincé, son pieds semblait coincé. L’air autour de sa jambe se teinta de ver
 « Base, j’ai un problème, ma combinaison est percée, je vois le vert. Je suis tombée, je crois que je me suis blessée »  
 « Vous croyez que vous êtes blessée ? Saignez-vous ? »   
 « Je ne sais pas, je vérifie »  
-En grimaçant, la sergente écarta les morceaux de débris lui bloquant la vue. 
+En grimaçant, la sergente écarta les morceaux de débris lui bloquant la vue.  
 « Sergente au rapport » grésilla la base  
 « Je confirme, je suis blessée, un bout de métal a percé ma combinaison et m’a éraflé la jambe »  
 « Est-ce que vous saignez sergente ? »  
