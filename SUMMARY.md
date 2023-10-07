@@ -78,3 +78,4 @@
     * [Spiders](inktober/2023/spiders.md)
     * [Path](inktober/2023/path.md)
     * [Dodge](inktober/2023/dodge.md)
+    * [Map](inktober/2023/map.md)
