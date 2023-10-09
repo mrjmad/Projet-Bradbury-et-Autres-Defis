@@ -82,3 +82,4 @@
     * [Golden](inktober/2023/golden.md)
     * [Drip](inktober/2023/drip.md)
     * [Toad](inktober/2023/toad.md)
+    * [Bounce](inktober/2023/bounce.md)
