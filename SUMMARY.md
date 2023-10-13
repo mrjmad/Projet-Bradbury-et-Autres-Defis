@@ -85,3 +85,4 @@
     * [Bounce](inktober/2023/bounce.md)
     * [Fortune](inktober/2023/fortune.md)
     * [Wander](inktober/2023/wander.md)
+    * [Spicey](inktober/2023/spicey.md)
