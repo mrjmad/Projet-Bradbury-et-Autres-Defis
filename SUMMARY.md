@@ -84,3 +84,4 @@
     * [Toad](inktober/2023/toad.md)
     * [Bounce](inktober/2023/bounce.md)
     * [Fortune](inktober/2023/fortune.md)
+    * [Wander](inktober/2023/wander.md)
