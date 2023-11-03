@@ -91,3 +91,4 @@
     * [Dagger](inktober/2023/dagger.md)
     * [Plump](inktober/2023/plump.md)
     * [Frost](inktober/2023/frost.md)
+    * [Celestial](inktober/2023/celestial.md)
