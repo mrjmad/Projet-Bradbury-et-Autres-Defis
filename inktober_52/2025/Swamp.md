@@ -50,5 +50,5 @@ Au loin, on commence à entendre de la musique. Des airs entrainants, un peu str
 
 Et, finalement, l’eldorado se dévoilent. Une rave partie géante vraiment mortelle. Des dizaines de cadavres plus ou moins décomposés se trémoussant plus ou moins en rythme avec la musique jouée par un groupe de quatre squelettes et un … homme bizarre habillé d’un pyjama rayé.   
   
-Surplombant cette scène invraisemblable, un ballon gonflable géant sur lequel est peint en grosse lettre rougeâtre l’épitaphe suivante : Bienvenue au Marais Dansant de Tottenham
+Surplombant cette scène invraisemblable, un ballon gonflable géant sur lequel est peint en grosse lettre rougeâtre l’épitaphe suivante : **Bienvenue au Marais Dansant de Tottenham**
 
