@@ -11,18 +11,18 @@ Pourtant, il y a un endroit,  un ultime village gaulois, qui bruissent d’excit
 
 C’est l’effervescence parmi les morts. On s’apprête, on époussète ses beaux habits en essayant de cacher du mieux possible les traces de morsures de souris. On récupère les poignets de cheveux qui parsèment les capitons et on les accroche avec des pinces à nourrices rouillées. 
 
-- Tu viens ce soir ? 
-- Bien entendu, je ne raterais ça pour rien au monde. 
-- Et tu penses qu’Alberta sera là ? 
-- je ne sais pas trop, je crois que depuis qu’un renard lui a rongé l’avant-bras elle n’ose plus sortir de son cercueil. 
+-Tu viens ce soir ?   
+-Bien entendu, je ne raterais ça pour rien au monde.   
+-Et tu penses qu’Alberta sera là ?   
+-je ne sais pas trop, je crois que depuis qu’un renard lui a rongé l’avant-bras elle n’ose plus sortir de son cercueil.   
 
 Plus les minutes passent, plus la nuit avance, plus l’heure se rapproche de minuit, plus l’agitation s’accentue. 
 
-- Buster dépêche-toi, nous allons finir par être les derniers à partir ?
-- J’arrive Drew, j’arrive, dis-moi  comment tu me trouves ? 
-- Ta cravate est parfaite mon pote, mais pourquoi tu t’es mis un lys jaune sur le nez ? 
-- Pas sur le nez, je n’ai plus de nez, un mulot me l’a arraché il y a quelque temps et je ne le retrouve plus… 
-- Ha…
+-Buster dépêche-toi, nous allons finir par être les derniers à partir ?  
+ -J’arrive Drew, j’arrive, dis-moi  comment tu me trouves ?  
+-Ta cravate est parfaite mon pote, mais pourquoi tu t’es mis un lys jaune sur le nez ?   
+-Pas sur le nez, je n’ai plus de nez, un mulot me l’a arraché il y a quelque temps et je ne le retrouve plus…   
+-Ha…. 
 
 Et, effectivement, les morts après s’être levés, les morts marchent. Le cimetière se vide progressivement, une véritable exode qui se déroule devant nous. 
 
@@ -33,19 +33,19 @@ Silencieux ?
 Quasiment. 
 
 On entend des coups au fond d’une petite crypte familiale. Une crypte avec un cercueil bien étrange, un cercueil sur lequel une gargouille a été posé. Les coups qui viennent troubler la quiétude du cimetière viennent de l’intérieur dudit cercueil. 
--Allez les gars, c’était drôle, c'est vrai, mais laissez-moi sortir maintenant
--Les gars ??
+-Allez les gars, c’était drôle, c'est vrai, mais laissez-moi sortir maintenant. 
+-Les gars ??  
 
 Notre petite troupe de morts continue, elle, son bonhomme de chemin. Assemblée de petits Poucets défraichis qui laissent derrière eux parfois une dent, parfois un orteil, une phalange voire un ou deux globules oculaires. 
 
 Au loin, on commence à entendre de la musique. Des airs entrainants, un peu stridents, un peu grinçant. Des lumières aussi, multicolores, clignotantes, un peu toutes verdâtres et fades, mais semblant tout de même réchauffer les cœurs de notre cohorte de décédés. 
 
--Ils ont déjà commencé, il faut se dépêcher, on va les rater sinon. 
--Patiente Autumn, tu sais bien que Felicity a les tendons du genou qui ont pourri, elle a besoin de nous pour avancer.
--Elle n’a qu’à ramper, elle finira bien par arriver. 
--Autumn ! Nous n’allons pas abandonner ta sœur, nous arriverons quand nous arriverons
--Mais Maman, je ne veux pas louper les SuperSwamp, je suis sûre qu’ils vont jouer _It’s Raining Again_ en plus.   
--Rends-toi donc utile et nous arriverons plus vite alors. 
+-Ils ont déjà commencé, il faut se dépêcher, on va les rater sinon.   
+-Patiente Autumn, tu sais bien que Felicity a les tendons du genou qui ont pourri, elle a besoin de nous pour avancer.  
+-Elle n’a qu’à ramper, elle finira bien par arriver.   
+-Autumn ! Nous n’allons pas abandonner ta sœur, nous arriverons quand nous arriverons.   
+-Mais Maman, je ne veux pas louper les SuperSwamp, je suis sûre qu’ils vont jouer _It’s Raining Again_ en plus.      
+-Rends-toi donc utile et nous arriverons plus vite alors.   
 
 
 Et, finalement, l’eldorado se dévoilent. Une rave partie géante vraiment mortelle. Des dizaines de cadavres plus ou moins décomposés se trémoussant plus ou moins en rythme avec la musique jouée par un groupe de quatre squelettes et un … homme bizarre habillé d’un pyjama rayé.   
