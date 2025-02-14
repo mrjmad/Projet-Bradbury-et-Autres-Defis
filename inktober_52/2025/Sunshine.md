@@ -22,7 +22,7 @@ Je me demande d’ailleurs pourquoi je continue à enregistrer et envoyer mes ra
 ### **Jour 28734**  
 8h30 , matin du jour numéro 28729 Major Augustine au rapport. Tout cela n’était bien qu’un leurre, un coup de bluff des cafards. Une entourloupe pour me faire douter. Et ils y sont presque arriver. Je dois avouer que j’ai bien failli me demander si ce n’était pas la fin de ma mission, si ne je ne pouvais pas enfin débrancher mes systèmes de survie. Mais ils ont relancer les attaques trop tôt. J’était encore suffisamment concentrée pour détecter leur tentative d’attaque furtive. Ils ont réussi à passer les murs 32 et 33 que j’avais reconstruit et à emporter en même temps les 31 et 30 mais je leur ai fait payer leur traitrise. Et le mur 29 a été considérablement renforcés. Ils s’y casseront les mandibules. 
 
-### **Jour 29342 - 8h30 **  
+### **Jour 29342 - 8h30**  
 8h30, matin du jour numéro 29342 Major Augustine au rapport. Le mur 4 vient de s’effondrer. Je crains que le 3 ne tienne que quelques heures. C’est surement mon dernier rapport. Je vais entendre le dernier moment enclencher l’envoi des missiles cachés aux pôles en ciblant l’entrée de la base et le mur 1. Ils seront tous bien trop occupés à creuser pour m’atteindre pour s’en rendre compte. Et vu la profondeur où je suis, les missiles auront largement le temps d’arriver. Je déploie des drones en altitudes pour envoyer comme dernier message les images de l’explosion. 
 
 ### **Jour 29342 -12h32**  
