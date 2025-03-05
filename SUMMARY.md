@@ -125,7 +125,7 @@
 [21]:	inktober_52/2025/Zoo.md
 [22]:	inktober_52/2025/Swamp.md
 [23]:	inktober_52/2025/Pyramid.md
-[24]:	inktober_52/Pisces.md
+[24]:	inktober_52/2025/Pisces.md
 [25]:	inktober/2019/ring.md
 [26]:	inktober/2019/mindless.md
 [27]:	inktober/2019/bait.md
