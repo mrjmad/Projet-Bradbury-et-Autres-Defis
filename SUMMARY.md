@@ -28,78 +28,79 @@
 	* [6 Swamp][22]
 	* [7 Pyramid][23]
 	* [8 Pisces][24]
+	* [9 Lamp][25]
 * Inktober
   * Inktober 2019
-	* [Ring][25]
-	* [Mindless][26]
-	* [Bait][27]
-	* [Freeze][28]
-	* [Build][29]
-	* [Husky][30]
-	* [Enchanted][31]
-	* [Frail][32]
-	* [Swing][33]
-	* [Pattern][34]
-	* [Snow][35]
-	* [Dragon][36]
-	* [Ash][37]
-	* [Overgrown][38]
-	* [Legend][39]
-	* [Wild][40]
-	* [Ornament][41]
-	* [Misfit][42]
-	* [Sling][43]
-	* [Tread][44]
-	* [Treasure][45]
-	* [Ghost][46]
-	* [Ancient][47]
-	* [Dizzy][48]
-	* [Tasty][49]
-	* [Dark][50]
-	* [Coat][51]
-	* [Ride][52]
-	* [Injured][53]
-	* [Catch][54]
-	* [Ripe][55]
+	* [Ring][26]
+	* [Mindless][27]
+	* [Bait][28]
+	* [Freeze][29]
+	* [Build][30]
+	* [Husky][31]
+	* [Enchanted][32]
+	* [Frail][33]
+	* [Swing][34]
+	* [Pattern][35]
+	* [Snow][36]
+	* [Dragon][37]
+	* [Ash][38]
+	* [Overgrown][39]
+	* [Legend][40]
+	* [Wild][41]
+	* [Ornament][42]
+	* [Misfit][43]
+	* [Sling][44]
+	* [Tread][45]
+	* [Treasure][46]
+	* [Ghost][47]
+	* [Ancient][48]
+	* [Dizzy][49]
+	* [Tasty][50]
+	* [Dark][51]
+	* [Coat][52]
+	* [Ride][53]
+	* [Injured][54]
+	* [Catch][55]
+	* [Ripe][56]
   * Inktober 2021
-	* [Crystal][56]
-	* [Suit][57]
-	* [Vessel][58]
-	* [Knot][59]
-	* [Raven][60]
-	* [Spirit][61]
-	* [Fan][62]
-	* [Watch][63]
-	* [Pressure][64]
+	* [Crystal][57]
+	* [Suit][58]
+	* [Vessel][59]
+	* [Knot][60]
+	* [Raven][61]
+	* [Spirit][62]
+	* [Fan][63]
+	* [Watch][64]
+	* [Pressure][65]
   * Inktober 2022
-	* [Gargoyle][65]
-	* [Scurry][66]
-	* [Bat][67]
-	* [Scallop][68]
-	* [Flamme][69]
-	* [Bouquet][70]
-	* [Trip][71]
-	* [Match][72]
-	* [Nest][73]
+	* [Gargoyle][66]
+	* [Scurry][67]
+	* [Bat][68]
+	* [Scallop][69]
+	* [Flamme][70]
+	* [Bouquet][71]
+	* [Trip][72]
+	* [Match][73]
+	* [Nest][74]
   * Inktober 2023
-	* [1 Dream][74]
-	* [2 Spiders][75]
-	* [3 Path][76]
-	* [4 Dodge][77]
-	* [5 Map][78]
-	* [6 Golden][79]
-	* [7 Drip][80]
-	* [8 Toad][81]
-	* [9 Bounce][82]
-	* [10 Fortune][83]
-	* [11 Wander][84]
-	* [12 Spicey][85]
-	* [13 Rise][86]
-	* [14 Castle][87]
-	* [15 Dagger][88]
-	* [19 Plump][89]
-	* [20 Frost][90]
-	* [23 Celestial][91]
+	* [1 Dream][75]
+	* [2 Spiders][76]
+	* [3 Path][77]
+	* [4 Dodge][78]
+	* [5 Map][79]
+	* [6 Golden][80]
+	* [7 Drip][81]
+	* [8 Toad][82]
+	* [9 Bounce][83]
+	* [10 Fortune][84]
+	* [11 Wander][85]
+	* [12 Spicey][86]
+	* [13 Rise][87]
+	* [14 Castle][88]
+	* [15 Dagger][89]
+	* [19 Plump][90]
+	* [20 Frost][91]
+	* [23 Celestial][92]
 	\* 
 
 [1]:	README.md
@@ -126,70 +127,71 @@
 [22]:	inktober_52/2025/Swamp.md
 [23]:	inktober_52/2025/Pyramid.md
 [24]:	inktober_52/2025/Pisces.md
-[25]:	inktober/2019/ring.md
-[26]:	inktober/2019/mindless.md
-[27]:	inktober/2019/bait.md
-[28]:	inktober/2019/freeze.md
-[29]:	inktober/2019/build.md
-[30]:	inktober/2019/husky.md
-[31]:	inktober/2019/enchanted.md
-[32]:	inktober/2019/frail.md
-[33]:	inktober/2019/swing.md
-[34]:	inktober/2019/pattern.md
-[35]:	inktober/2019/snow.md
-[36]:	inktober/2019/dragon.md
-[37]:	inktober/2019/ash.md
-[38]:	inktober/2019/overgrown.md
-[39]:	inktober/2019/legend.md
-[40]:	inktober/2019/wild.md
-[41]:	inktober/2019/ornament.md
-[42]:	inktober/2019/misfit.md
-[43]:	inktober/2019/sling.md
-[44]:	inktober/2019/tread.md
-[45]:	inktober/2019/treasure.md
-[46]:	inktober/2019/ghost.md
-[47]:	inktober/2019/ancient.md
-[48]:	inktober/2019/dizzy.md
-[49]:	inktober/2019/tasty.md
-[50]:	inktober/2019/dark.md
-[51]:	inktober/2019/coat.md
-[52]:	inktober/2019/ride.md
-[53]:	inktober/2019/injured.md
-[54]:	inktober/2019/catch.md
-[55]:	inktober/2019/ripe.md
-[56]:	inktober/2021/crystal.md
-[57]:	inktober/2021/suit.md
-[58]:	inktober/2021/vessel.md
-[59]:	inktober/2021/knot.md
-[60]:	inktober/2021/raven.md
-[61]:	inktober/2021/spirit.md
-[62]:	inktober/2021/fan.md
-[63]:	inktober/2021/watch.md
-[64]:	inktober/2021/pressure.md
-[65]:	inktober/2022/gargoyle.md
-[66]:	inktober/2022/scurry.md
-[67]:	inktober/2022/bat.md
-[68]:	inktober/2022/scallop.md
-[69]:	inktober/2022/flamme.md
-[70]:	inktober/2022/bouquet.md
-[71]:	inktober/2022/trip.md
-[72]:	inktober/2022/match.md
-[73]:	inktober/2022/nest.md
-[74]:	inktober/2023/dream.md
-[75]:	inktober/2023/spiders.md
-[76]:	inktober/2023/path.md
-[77]:	inktober/2023/dodge.md
-[78]:	inktober/2023/map.md
-[79]:	inktober/2023/golden.md
-[80]:	inktober/2023/drip.md
-[81]:	inktober/2023/toad.md
-[82]:	inktober/2023/bounce.md
-[83]:	inktober/2023/fortune.md
-[84]:	inktober/2023/wander.md
-[85]:	inktober/2023/spicey.md
-[86]:	inktober/2023/rise.md
-[87]:	inktober/2023/castle.md
-[88]:	inktober/2023/dagger.md
-[89]:	inktober/2023/plump.md
-[90]:	inktober/2023/frost.md
-[91]:	inktober/2023/celestial.md
+[25]:	inktober_52/2025/Lamp.md
+[26]:	inktober/2019/ring.md
+[27]:	inktober/2019/mindless.md
+[28]:	inktober/2019/bait.md
+[29]:	inktober/2019/freeze.md
+[30]:	inktober/2019/build.md
+[31]:	inktober/2019/husky.md
+[32]:	inktober/2019/enchanted.md
+[33]:	inktober/2019/frail.md
+[34]:	inktober/2019/swing.md
+[35]:	inktober/2019/pattern.md
+[36]:	inktober/2019/snow.md
+[37]:	inktober/2019/dragon.md
+[38]:	inktober/2019/ash.md
+[39]:	inktober/2019/overgrown.md
+[40]:	inktober/2019/legend.md
+[41]:	inktober/2019/wild.md
+[42]:	inktober/2019/ornament.md
+[43]:	inktober/2019/misfit.md
+[44]:	inktober/2019/sling.md
+[45]:	inktober/2019/tread.md
+[46]:	inktober/2019/treasure.md
+[47]:	inktober/2019/ghost.md
+[48]:	inktober/2019/ancient.md
+[49]:	inktober/2019/dizzy.md
+[50]:	inktober/2019/tasty.md
+[51]:	inktober/2019/dark.md
+[52]:	inktober/2019/coat.md
+[53]:	inktober/2019/ride.md
+[54]:	inktober/2019/injured.md
+[55]:	inktober/2019/catch.md
+[56]:	inktober/2019/ripe.md
+[57]:	inktober/2021/crystal.md
+[58]:	inktober/2021/suit.md
+[59]:	inktober/2021/vessel.md
+[60]:	inktober/2021/knot.md
+[61]:	inktober/2021/raven.md
+[62]:	inktober/2021/spirit.md
+[63]:	inktober/2021/fan.md
+[64]:	inktober/2021/watch.md
+[65]:	inktober/2021/pressure.md
+[66]:	inktober/2022/gargoyle.md
+[67]:	inktober/2022/scurry.md
+[68]:	inktober/2022/bat.md
+[69]:	inktober/2022/scallop.md
+[70]:	inktober/2022/flamme.md
+[71]:	inktober/2022/bouquet.md
+[72]:	inktober/2022/trip.md
+[73]:	inktober/2022/match.md
+[74]:	inktober/2022/nest.md
+[75]:	inktober/2023/dream.md
+[76]:	inktober/2023/spiders.md
+[77]:	inktober/2023/path.md
+[78]:	inktober/2023/dodge.md
+[79]:	inktober/2023/map.md
+[80]:	inktober/2023/golden.md
+[81]:	inktober/2023/drip.md
+[82]:	inktober/2023/toad.md
+[83]:	inktober/2023/bounce.md
+[84]:	inktober/2023/fortune.md
+[85]:	inktober/2023/wander.md
+[86]:	inktober/2023/spicey.md
+[87]:	inktober/2023/rise.md
+[88]:	inktober/2023/castle.md
+[89]:	inktober/2023/dagger.md
+[90]:	inktober/2023/plump.md
+[91]:	inktober/2023/frost.md
+[92]:	inktober/2023/celestial.md
