@@ -103,6 +103,8 @@
 	* [19 Plump][92]
 	* [20 Frost][93]
 	* [23 Celestial][94]
+* Inktober 2025
+	* [1 Mustache][95]
 	\* 
 
 [1]:	README.md
@@ -199,3 +201,4 @@
 [92]:	inktober/2023/plump.md
 [93]:	inktober/2023/frost.md
 [94]:	inktober/2023/celestial.md
+[95]:	inktober/2025/Mustache.md
