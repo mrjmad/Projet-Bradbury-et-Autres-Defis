@@ -103,9 +103,9 @@
 	* [19 Plump][92]
 	* [20 Frost][93]
 	* [23 Celestial][94]
-* Inktober 2025
+  * Inktober 2025
 	* [1 Mustache][95]
-	*  [2 Weave][96]
+	* [2 Weave][96]
 	\* 
 
 [1]:	README.md
