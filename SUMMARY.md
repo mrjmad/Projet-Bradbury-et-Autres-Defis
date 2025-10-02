@@ -105,6 +105,7 @@
 	* [23 Celestial][94]
 * Inktober 2025
 	* [1 Mustache][95]
+	*  [2 Weave][96]
 	\* 
 
 [1]:	README.md
@@ -202,3 +203,4 @@
 [93]:	inktober/2023/frost.md
 [94]:	inktober/2023/celestial.md
 [95]:	inktober/2025/Mustache.md
+[96]:	inktober/2025/Weave.md
