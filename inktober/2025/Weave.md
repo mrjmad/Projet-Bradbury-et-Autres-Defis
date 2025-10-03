@@ -80,7 +80,7 @@ Elle finit par se lever. Traversa son appartement. Déverrouilla la porte. Repri
 « Vous allez mettre cela autour de votre cou et vous allez me promettre de ne pas l’enlever, jamais »     
 « Bien » Hazel n’avait plus la force de refuser, de lutter. Elle pris le pendentif, l’accrocha autour de son cou.    
 « Je veux comprendre madame Pointigre, je veux savoir tout ça la … »   
-« Vous pouvez m’appeler Apolline , je pense que nous allons être amené à passer beaucoup de temps ensemble ma chère ».   
+« Vous pouvez m’appeler Apolline , je pense que nous allons être amené à passer beaucoup de temps ensemble ma chère, alors oublions les politesses.».   
 Tout en disant cela, la femme pris Hazel par le coude, l’amena dans la cuisine, la fit assoir et se mit à fouiller dans les placards .   
 «Le placard au-dessus de l’évier. La tasse Totoro s’il vous plait, c’est ma tasse porte bonheur ». Hazel lâcha un petit rire débordant de colère et de peur en finissant sa phrase.   
 « Et des explications. Maintenant »   
