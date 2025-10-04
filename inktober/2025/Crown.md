@@ -42,7 +42,7 @@ Apolline grimaça.
 « Je ne plaisante pas Hazel, le don de Tisse-Passage est un don dangereux, pas seulement par ce qu’il est. Mais, parce que certaines personnes… » Apolline cherchait comme continuer sa phrase sans êtes trop brutale. Elle décida finalement de dire la vérité simple et froide.    
 « Certaines personnes te traqueront pour te tuer ou pour détruire ton esprit et utiliser ton don comme d’un outil jusqu’à tu finisses par en mourrir »   
 « De mieux en mieux, je crois que le jour où j’ai répondu à votre petite annonce j’aurais vraiment mieux fait d’embrasser une moissonneuse batteuse en fonctionnement »   
-« Peut-être qu’au contraire, c’est grace à cet appel pour garder mes filles que tu es encore en vie Hazel.. qui sait.    
+« Peut-être qu’au contraire, c’est grâce à cet appel pour garder mes filles que tu es encore en vie Hazel.. qui sait.    
 Mais je dois vraiment partir. Souviens-toi, garde le pendentif et ne parle de tout cela à personne »   
 «  Et ensuite ? »   
 « Tu connais l’adresse de la maison. Je t’attends demain matin. Je commencerai ta formation. Et j’appellerais tes parents pour comprendre pourquoi ils ne t’ont pas formée, pourquoi tu ne connais rien sur ton monde »  
