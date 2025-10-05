@@ -108,6 +108,7 @@
 	* [2 Weave][96]
 	* [3 Crown][97]
 	*  [4 Murky][98]
+	*  [5 Deer][99]
 	\* 
 
 [1]:	README.md
@@ -208,3 +209,4 @@
 [96]:	inktober/2025/Weave.md
 [97]:	inktober/2025/Crown.md
 [98]:	inktober/2025/Murky.md
+[99]:	inktober/2025/Deer.md
