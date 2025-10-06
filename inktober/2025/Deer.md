@@ -60,7 +60,7 @@ Minant une clé qui tournait dans une serrure devant sa bouche, la petite fille 
 « Non. J’ai simplement fermé les stores et j’ai allumé toutes les lumières et il n’y a eu aucun problème ».   
 « Très bien. Mais, si jamais tu changes d’avis. Il y a de la place ici. Tu serais la bienvenue. »   
 
-« Maman ? » 
+« Maman ? »   
 « Oui Mélinoé ? Tu ne devais pas rester silencieuse ? »   
 « Si maman, mais Artem est dehors et je crois qu’il ne va pas bien »   
 
