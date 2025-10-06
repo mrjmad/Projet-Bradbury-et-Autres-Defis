@@ -71,7 +71,7 @@ Un magnifique Cerf se tenait au milieu du jardin. Ses bois, bien que jeunes, ét
 Il était blessé, visiblement une blessure de fusil qui lui avait criblé la croupe d’une dizaine de petits trous qui saignaient tous.   
 « Artem ? » répéta Hazel.   
 « C’est un changeur. Il se transforme. Je lui ai dit de faire attention aux chasseurs. Je n’arrête pas de lui répéter … » répondit Pointigre alors qu’elle se dirigeait déjà vers la porte du salon.     
-« Mélinoé va chercher des serviettes avec Hazel, nous allons en avoir besoin.    
+« Mélinoé va chercher des serviettes et la valise des premiers secours avec Hazel, nous allons en avoir besoin.    
 « Hazel bienvenu dans votre nouvelle vie » ajouta-t-elle, un peu tristement.   
 
 
