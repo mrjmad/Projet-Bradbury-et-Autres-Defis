@@ -109,6 +109,7 @@
 	* [3 Crown][97]
 	*  [4 Murky][98]
 	*  [5 Deer][99]
+	*   [6 Pierce][100]
 	\* 
 
 [1]:	README.md
@@ -210,3 +211,4 @@
 [97]:	inktober/2025/Crown.md
 [98]:	inktober/2025/Murky.md
 [99]:	inktober/2025/Deer.md
+[100]:	inktober/2025/Pierce.md
