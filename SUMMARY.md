@@ -110,6 +110,7 @@
 	*  [4 Murky][98]
 	*  [5 Deer][99]
 	*   [6 Pierce][100]
+	*  [7 Starfish ][101]
 	\* 
 
 [1]:	README.md
@@ -212,3 +213,4 @@
 [98]:	inktober/2025/Murky.md
 [99]:	inktober/2025/Deer.md
 [100]:	inktober/2025/Pierce.md
+[101]:	inktober/2025/Starfish.md
