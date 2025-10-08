@@ -107,11 +107,11 @@
 	* [1 Mustache][95]
 	* [2 Weave][96]
 	* [3 Crown][97]
-	*  [4 Murky][98]
-	*  [5 Deer][99]
-	*   [6 Pierce][100]
-	*  [7 Starfish ][101]
-	* [ 8 Reckless][102]
+	* [4 Murky][98]
+	* [5 Deer][99]
+	* [6 Pierce][100]
+	* [7 Starfish][101]
+	* [8 Reckless][102]
 	\* 
 
 [1]:	README.md
@@ -215,4 +215,4 @@
 [99]:	inktober/2025/Deer.md
 [100]:	inktober/2025/Pierce.md
 [101]:	inktober/2025/Starfish.md
-[102]:	inktober/2025/reckless.md
+[102]:	inktober/2025/Reckless.md
