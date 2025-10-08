@@ -111,7 +111,7 @@
 	*  [5 Deer][99]
 	*   [6 Pierce][100]
 	*  [7 Starfish ][101]
-	* [ 8 Wreckless][102]
+	* [ 8 Reckless][102]
 	\* 
 
 [1]:	README.md
@@ -215,4 +215,4 @@
 [99]:	inktober/2025/Deer.md
 [100]:	inktober/2025/Pierce.md
 [101]:	inktober/2025/Starfish.md
-[102]:	inktober/2025/Wreckless.md
+[102]:	inktober/2025/reckless.md
