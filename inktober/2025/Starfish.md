@@ -53,6 +53,7 @@ Apolline arriva à ce moment-là. «Ce n’est pas trop tôt Néha. Il va vraime
 «  La Jamaïque, l’automne et l’hiver me déprime ici, il fait trop gris.»  
 « Ça explique le bronzage » Apolline regarda le sol de sa cuisine. « et le sable … »   
 
+---- -----------
 
 « Concentre-toi Hazel. Rappelle-toi. La première chose que tu dois faire c’est apprendre à volontairement bloquer ton pouvoir. Allez essaie à nouveau »
 
