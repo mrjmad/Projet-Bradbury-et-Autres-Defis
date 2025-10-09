@@ -112,6 +112,7 @@
 	* [6 Pierce][100]
 	* [7 Starfish][101]
 	* [8 Reckless][102]
+	*  [9 Heavy][103]
 	\* 
 
 [1]:	README.md
@@ -216,3 +217,4 @@
 [100]:	inktober/2025/Pierce.md
 [101]:	inktober/2025/Starfish.md
 [102]:	inktober/2025/Reckless.md
+[103]:	inktober/2025/Heavy.md

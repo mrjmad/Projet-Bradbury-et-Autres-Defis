@@ -62,7 +62,7 @@ Et à New-York succéda Trondheim. Elles y grelotèrent, se réchauffèrent en b
 «  Bien. Alors c’est la réalité la plus proche de nous. Elle est peuplée de Fey ou fée. Les lutins, les elfes, le petit peuple, ils viennent toutes et tous de là. Il y a deux cours , un peu les méchants et les gentils, avec deux reines. »   commença à réciter Hazel entre deux gorgées de bière. 
 « Ce n’est pas vraiment exactement les gentils et les méchants. C’est la cour de l’hiver et de l’été et ils faut se méfier autant des uns que des autres. Mais continues » commenta Néhal. 
 « Comme c’est la réalité la plus proche de la notre, un certain nombre de portails existent, parfois à sens unique, parfois bidirectionnel. Il y en a des persistants, d’autres qui ne s’ouvrent que pendant certaines périodes de l'année et d’autre qui apparaissent au hasard pour de très brèves périodes ». Finis la jeune femme. 
-«  Je finis par me demander à quoi je sers vu qu’il semble y avoir des portails pour un peu partout au final » ajouta-t-elle un peu boudeuse.   
+«  Je finis par me demander à quoi je sers vu qu’il semble y avoir des portails un peu partout au final » ajouta-t-elle un peu boudeuse.   
 « Ne parle pas dans un tel lieu de cela Hazel, tu ignores quelles oreilles peuvent entendre tes paroles » murmura rapidement Néhal.   
 « Mais si je te disais qu’il y a un portail, qui ne s’ouvre que pendant le mois d’octobre et qui nous déposerait à quelques minutes de marche d’un cercle de fées »   
 «  Un cercle de fées ? »  
