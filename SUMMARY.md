@@ -113,6 +113,7 @@
 	* [7 Starfish][101]
 	* [8 Reckless][102]
 	*  [9 Heavy][103]
+	*  [10 Sweep][104]
 	\* 
 
 [1]:	README.md
@@ -218,3 +219,4 @@
 [101]:	inktober/2025/Starfish.md
 [102]:	inktober/2025/Reckless.md
 [103]:	inktober/2025/Heavy.md
+[104]:	inktober/2025/Sweep.md
