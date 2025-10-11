@@ -114,6 +114,7 @@
 	* [8 Reckless][102]
 	*  [9 Heavy][103]
 	*  [10 Sweep][104]
+	*  [11 Sting][105]
 	\* 
 
 [1]:	README.md
@@ -220,3 +221,4 @@
 [102]:	inktober/2025/Reckless.md
 [103]:	inktober/2025/Heavy.md
 [104]:	inktober/2025/Sweep.md
+[105]:	inktober/2025/Sting.md
