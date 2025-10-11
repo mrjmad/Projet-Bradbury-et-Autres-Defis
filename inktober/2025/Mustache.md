@@ -3,9 +3,9 @@
 *Traduction: Moustache*
 
 
-🎶 beauty in the broken glass🎶 … « Tournez à droite et dans vingt-cinq mètres vous aurez atteint votre destination. »   
+🎶 Beauty in the broken glass 🎶 … « Tournez à droite et dans vingt-cinq mètres, vous aurez atteint votre destination. »   
 
-Hazel mit sur pause sa playlist, arriva à l’angle de la rue, vérifia « Rue des courts Bilboquet, c’est bien ici » et fit les quelques mètres qui la séparait de sa destination, le trente-et-un de ladite rue. 
+Hazel mit sur pause sa playlist, arriva à l’angle de la rue, vérifia « Rue des Courts-Bilboquets, c’est bien ici » et fit les quelques mètres qui la séparait de sa destination, le trente-et-un de ladite rue. 
 
 Elle siffla doucement entre ses dents. Pour une grande maison, c’était une grande maison. Les propriétaires n’avaient lésiné ni sur les fenêtres, ni sur le lierre grimpant.
 
@@ -45,7 +45,7 @@ Mélinoé repris la parole. « Moi c’est Mélinoé et j’ai huit ans. Ényo 
 
 Hazel pris une des affiches posées sur la table et la parcourut du regard. 
 
-_Nous avons perdu Moustache. Il est gentil et tout doux. Si vous nous aidez à le retrouver, nous vous donnerons cent millions d’euros. Il faut le ramener au 31 rue des courts Bilboquet. Mais pas trop tard parce que les soirs d’école, Maman veut qu’on se couche tôt. _
+_Nous avons perdu Moustache. Il est gentil et tout doux. Si vous nous aidez à le retrouver, nous vous donnerons cent millions d’euros. Il faut le ramener au 31 Rue des Courts-Bilboquet. Mais pas trop tard parce que les soirs d’école, Maman veut qu’on se couche tôt._
 
 Hazel sourit franchement. « Je crois qu’au niveau de la récompense, cela ne va pas, les filles. » Elle n’eut pas le temps de finir que Mélinoé lui coupa la parole. 
 « Tu vois Séléné, je te l’avais dit, ce n’est pas assez, on aurait dû mettre plus de millions, c’est pas assez, là » 
@@ -54,21 +54,21 @@ Hazel sourit franchement. « Je crois qu’au niveau de la récompense, cela ne
 « C’est que… » Mélinoé semblait un peu embarrassée.   
 « Moustache est spécial » répondit Séléné. « Les photos ne marchent pas avec lui, il on ne le voit jamais, c’est toujours tout flou » continua la fillette.    
 « Ha … alors on va le décrire. De quelle taille il est, de quelle couleur, comme ça les gens pourront le reconnaitre »   
-« Mais.. ca dépends Hazel » répondit Ényo en prenant la parole pour la première fois.   
-« Ca … dépend ? » questionna Hazel.   
+« Mais... ça dépends Hazel » répondit Ényo en prenant la parole pour la première fois.   
+« Ça … dépend ? » questionna Hazel.   
 « Oui. Moustache, c’est une panthère des neiges, blanche avec de grandes dents piquantes qui font peur aux méchants.» ajoute Ényo.  
-« Mais pour moi, quand je le prends dans mes bras c’est une petite licorne toute douce avec une crinière arc en ciel» ajoute Mélinoé.   
+« Mais pour moi, quand je le prends dans mes bras, c’est une petite licorne toute douce avec une crinière arc-en-ciel» ajoute Mélinoé.   
 « Et pour moi, c’est un beau petit dragon vert à deux têtes, avec parfois de la fumée qui sort de ses narines » conclut Séléné.   
 « Très bien, je vois bien le problème » dit Hazel. Elle commençait à comprendre que Moustache était l’animal de compagnie imaginaire des petites filles. Elle décida de rentrer dans le jeu, ce n’était pas à elle de leur expliquer qu’un tel animal n’existait pas. Elles avaient bien le temps de se rendre compte que le monde n’était pas aussi magique.   
 « Alors ce que l’on va faire les filles, c’est qu’on va faire des affiches avec les trois apparences de Moustache. Et on ajoutera une description sous chaque dessin, d’accord ? »   
 « Trop bien » s’exclama Mélinoé, ravie. « Et après on ira les coller partout dans la rue » rajouta la fillette.   
-« Hum.. je ne pense pas que ta Maman serait d’accord pour que je vous amène dehors, mais promis j’irai les coller quand elle sera de retour »  
+« Hum... je ne pense pas que ta Maman serait d’accord pour que je vous amène dehors, mais promis j’irai les coller quand elle sera de retour »  
 
 Et l’après-midi passa ainsi, entre confectionner des affiches de Moustache qui était à la fois une licorne, une panthère et un dragon et manger des goûters. Parce que les goûters, c’est important. Et que faire des affiches, cela creuse et cela donne bien le droit à plusieurs goûters. 
 
-Comme l’avait prédit leur mère, Artem, le frère ainé ne montra pas le bout de son nez. Et quand Hazel demanda si c’était normal et si elle devait aller demander si il voulait un goûter, Séléné leva les yeux au ciel en répondant « Notre grand frère est dans sa période Ado, il ne voudra rien, il râlera juste qu’il ne peut pas être tranquille deux minutes. »
+Comme l’avait prédit leur mère, Artem, le frère ainé ne montra pas le bout de son nez. Et quand Hazel demanda si c’était normal et si elle devait aller demander s'il voulait un goûter, Séléné leva les yeux au ciel en répondant « Notre grand frère est dans sa période Ado, il ne voudra rien, il râlera juste qu’il ne peut pas être tranquille deux minutes. »
 
-Le soir arriva, et avec le soir un SMS de la mère des enfants pour prévenir qu’elle aurait du retard mais qu’Hazel pouvait rentrer comme prévu, qu’une voisine allait passer pour prendre la relève. 
+Le soir arriva, et avec le soir un SMS de la mère des enfants pour prévenir qu’elle aurait du retard, mais qu’Hazel pouvait rentrer comme prévu, qu’une voisine allait passer pour prendre la relève. 
 
 Hazel serra les fillettes dans ses bras en leur promettant d’accrocher les affiches de Moustache sur son trajet. 
 
