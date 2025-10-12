@@ -41,8 +41,8 @@ Hazel prit son téléphone et bien que les tremblements qui la secouaient ne ren
 « Et vous ne comprenez pas pourquoi ? »  
 « Non, je ne comprends pas comment c’est possible, vous avez peut-être l’habitude de voir des trucs qui n’existent pas. Mais moi non. »  
 « Donnez-moi votre adresse Hazel. Je vais venir vous expliquer. Mais, écoutez-moi » La voix de madame Pointigre se fit sévère, tranchante, urgente.  
-« C’est très important. Vraiment très important. Ne sortez pas de chez vous.   N’ouvrez aucune porte. Quand je serai devant votre porte je vous appellerai, vous la déverrouillerez et j’ouvrirai moi. Mais surtout, n’appelez personne, ne sortez pas.   Vous n’êtes pas folle, mais si vous voyez Moustache, c’est dangereux. Vous devez m’attendre »  
-« Ne pas ouvrir de porte ? Ne pas sortir ? Mais, c’est une blague, vous êtes folle ?   C’est une blague en fait. Vous me faites une blague » Hazel raccrocha sans attendre.  
+« C’est très important. Vraiment très important. Ne sortez pas de chez vous.   N’ouvrez aucune porte. Quand je serai devant votre porte, je vous appellerai, vous la déverrouillerez et j’ouvrirai moi. Mais surtout, n’appelez personne, ne sortez pas. Vous n’êtes pas folle, mais si vous voyez Moustache, c’est dangereux. Vous devez m’attendre »  
+« Ne pas ouvrir de porte ? Ne pas sortir ? Mais, c’est une blague, vous êtes folle ? C’est une blague en fait. Vous me faites une blague » Hazel raccrocha sans attendre.  
 
 Elle jeta un coup d’œil derrière le canapé. Le … truc-chat était assis, immobile et la regardait avec son regard, son regard de chat. Elle avait l’impression qu’il avait presque pitié d’elle. Il lui donnait l’impression d’être une petite fille qui allait se faire gronder.  
 
@@ -62,7 +62,7 @@ La porte se referma. Le cri se transforma en rage et frustration.
 
 Hazel, incapable de bouger, baissa les yeux. Moustache était assis bien droit contre la porte, la regardant de nouveau avec ce regard de triste jugement.  
 
-Elle s’effondra au sol. Trouva son téléphone. Envoya un sms.  
+Elle s’effondra au sol. Trouva son téléphone. Envoya un SMS.  
 
 Quelques minutes ou quelques heures plus tard, la sonnette retentit.  
 
@@ -80,7 +80,7 @@ Elle finit par se lever. Traversa son appartement. Déverrouilla la porte. Repri
 « Bien » Hazel n’avait plus la force de refuser, de lutter. Elle prit le pendentif, l’accrocha autour de son cou.  
 « Je veux comprendre, Madame Pointigre, je veux savoir tout ça là … »  
 « Vous pouvez m’appeler Apolline, je pense que nous allons être amenées à passer beaucoup de temps ensemble, ma chère, alors oublions les politesses.».  
-Tout en disant cela, la femme prit Hazel par le coude, l’amena dans la cuisine, la fit assoir et se mit à fouiller dans les placards .  
+Tout en disant cela, la femme prit Hazel par le coude, l’amena dans la cuisine, la fit assoir et se mit à fouiller dans les placards.  
 « Le placard au-dessus de l’évier. La tasse Totoro s’il vous plait, c’est ma tasse porte bonheur ». Hazel lâcha un petit rire débordant de colère et de peur en finissant sa phrase.  
 « Et des explications. Maintenant »  
 La femme prit les tasses, récupéra la bouilloire, fit une légère moue en cherchant dans les sachets.  

@@ -3,13 +3,13 @@
 _Traduction: Couronne_
 
 « Le don de Tisse-Passage » répéta Hazel ?  
-« Et pourquoi pas celui de Passe-Muraille ou mieux de Passe-Miroir » continua-elle en laissant la colère qui commençait à bouillonner en elle prendre les rennes.  
+« Et pourquoi pas celui de Passe-Muraille ou mieux de Passe-Miroir » continua-t-elle en laissant la colère qui commençait à bouillonner en elle prendre les rennes.  
 « Qu’est-ce que c’est que ces conneries de Tisse-Passage, truc qui n’existe pas et autres » continua-t-elle.  
 « Et en plus, pourquoi porte-t-il une Couronne, lui ? C’est le Roi des trucs bizarres ? Il faut que je l’embrasse et il se transformera en prince ? »  
 Hazel ne pouvait pas s’arrêter. Elle savait bien qu’elle perdait pied, mais c’était le seul moyen qu’elle avait trouvé pour ne pas finir écrasée par sa peur. S’envelopper de sa colère et la laisser parler à sa place.  
 
 Apolline Pointigre attendit et laissa Hazel continuer à épuiser sa colère, ses peurs.  
-« Très bien, je pense que cela suffit Hazel, avec les phrases sans queue ni tête.   Maintenant si tu veux voir le premier matin de la semaine prochaine, il va te falloir m’écouter »  
+« Très bien, je pense que cela suffit Hazel, avec les phrases sans queue ni tête. Maintenant si tu veux voir le premier matin de la semaine prochaine, il va te falloir m’écouter »  
 « Cela suffit, vous me dites ? Mais, je fais seulement que commencer, vous m’avez fait cela, vous allez devoir me le défaire et me rendre normale de nouveau, vous allez devoir m’écouter et m’expliquer »  
 « CELA SUFFIT ». Apolline n’avait pas levé la voix. Pourtant, c'était comme si celle-ci emplissait la pièce, soufflant tous les autres sons, suffoquant même la lumière.  
 Hazel s’était tue et n’osait plus reprendre la parole.  
@@ -37,18 +37,18 @@ Madame Pointigre regarda sa montre.
 Apolline grimaça.  
 « De toutes les réalités que vous auriez pu rejoindre, vous avez ouvert une porte vers la Ville… »  
 « Le pire, toujours le pire, on peut être sûr que le pire est toujours pour Hazel » répondit celle-ci en essayant de sourire.  
-« Ne vous inquietez pas pour votre don Hazel, tant que vous portez le pendentif il ne se déclenchera pas. Mais vous ne devez parler de cela à personne »  
+« Ne vous inquiétez pas pour votre don Hazel, tant que vous portez le pendentif, il ne se déclenchera pas. Mais vous ne devez parler de cela à personne »  
 « Comme si on allait me croire de toute façon, je finirai internée si je raconte ça à quelqu’un »  
 « Je ne plaisante pas Hazel, le don de Tisse-Passage est un don dangereux, pas seulement par ce qu’il est. Mais, parce que certaines personnes… »   
-Apolline cherchait comme continuer sa phrase sans êtes trop brutale. Elle décida finalement de dire la vérité simple et froide.  
-« Certaines personnes te traqueront pour te tuer ou pour détruire ton esprit et utiliser ton don comme d’un outil jusqu’à tu finisses par en mourrir »  
+Apolline cherchait comme continuer sa phrase sans être trop brutale. Elle décida finalement de dire la vérité simple et froide.  
+« Certaines personnes te traqueront pour te tuer ou pour détruire ton esprit et utiliser ton don comme d’un outil jusqu’à tu finisses par en mourir »  
 « De mieux en mieux, je crois que le jour où j’ai répondu à votre petite annonce j’aurais vraiment mieux fait d’embrasser une moissonneuse batteuse en fonctionnement »  
-« Peut-être qu’au contraire, c’est grâce à cet appel pour garder mes filles que tu es encore en vie Hazel.. qui sait.  
+« Peut-être qu’au contraire, c’est grâce à cet appel pour garder mes filles que tu es encore en vie Hazel… Qui sait.  
 Mais je dois vraiment partir. Souviens-toi, garde le pendentif et ne parle de tout cela à personne »  
-«  Et ensuite ? »  
+« Et ensuite ? »  
 « Tu connais l’adresse de la maison. Je t’attends demain matin. Je commencerai ta formation. Et j’appellerai tes parents pour comprendre pourquoi ils ne t’ont pas formée, pourquoi tu ne connais rien sur ton monde »  
 « J’ai été adoptée, Madame, je ne connais pas mes parents biologiques » répondit Hazel.  
-« Oh.. je suis désolée »  
+« Oh… je suis désolée »  
 « Vous ne devriez pas. Mes vrais parents, ceux qui m’ont élevée sont géniaux. Je les aime et je n’en aurais pas voulu d’autres »  
 Ne sachant que répondre, madame Pointigre fouilla dans son sac et en sortir deux livres.  
 « Je t’ai amené de la lecture. C’est loin d’être suffisant, mais il faut bien que tu commences à découvrir ta nouvelle réalité »  
