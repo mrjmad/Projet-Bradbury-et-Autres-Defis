@@ -115,6 +115,7 @@
 	*  [9 Heavy][103]
 	*  [10 Sweep][104]
 	*  [11 Sting][105]
+	*   [12 Shredded ][106]
 	\* 
 
 [1]:	README.md
@@ -222,3 +223,4 @@
 [103]:	inktober/2025/Heavy.md
 [104]:	inktober/2025/Sweep.md
 [105]:	inktober/2025/Sting.md
+[106]:	inktober/2025/Shredded.md
