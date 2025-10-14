@@ -2,7 +2,7 @@
 
 *traduction : Boire*
 
-*trigger warning : Arachnopobie / alcool *
+*trigger warning : Arachnopobie / alcool*
 
 Je me voyais mal ne pas obéir. Gémissant de douleur, je mis les gants et je suivi le Cyclope. 
 
