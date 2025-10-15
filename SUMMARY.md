@@ -117,6 +117,7 @@
 	*  [11 Sting][105]
 	*  [12 Shredded ][106]
 	*  [13 Drink][107]
+	*  [14 Trunk][108]
 	\* 
 
 [1]:	README.md
@@ -226,3 +227,4 @@
 [105]:	inktober/2025/Sting.md
 [106]:	inktober/2025/Shredded.md
 [107]:	inktober/2025/Drink.md
+[108]:	inktober/2025/Trunk.md
