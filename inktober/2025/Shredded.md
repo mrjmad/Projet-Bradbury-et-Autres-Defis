@@ -58,11 +58,11 @@ Je me mis à rire, j’avais réellement eu peur sur le moment. Dire que je m’
 
 « Mais bien sur oui … Pourquoi pas ma main enti… » je ne finis pas ma phrase. Mon corps s’était tourné et avançait vers mon moulin. J’avais beau lutter, forcer, résister, rien ne se passait.   
 
-« Je.. C’est bon.. Allez Saturion, j’ai .. j’ai compris, déconne .. déconne pas. Je prend mon chapeau et je te suis.. ou tu veux.. arrêtes, arrête ça »   
+« Je.. C’est bon.. Allez Saturion, j’ai .. j’ai compris, déconne .. déconne pas. Je prend mon chapeau et je te suis.. où tu veux.. arrêtes, arrête ça »   
 
-J’était contre le meuble, mon bras se tendit, je me mis à pleurer tandis que ma main s’approchait du moulin.   
+J’étais contre le meuble, mon bras se tendit, je me mis à pleurer tandis que ma main s’approchait du moulin.   
 
-« Arrête ca » me mis-je à hurler tandis que le cyclope regardait, toujours sur le pas de la porte, l’oeil brillant de joie.   
+« Arrête ça » me mis-je à hurler tandis que le cyclope regardait, toujours sur le pas de la porte, l’oeil brillant de joie.   
 
 La douleur, la douleur était horrible. Mais le bruit était presque pire. Des bouts de viande et d’os de mon doigt déchiqueté jaillissaient du bol du moulin, éclaboussant la pièce, les murs, mes habits. Un bout d’os finit par atterrir sur ma joue et glissa lentement, laissant une trace humide qui se mélangea avec mes larmes.
 
@@ -74,7 +74,7 @@ Je ne pu qu’acquiescer.
 
 Il me jeta une paire de gants en cuir. 
 
-«  Met ça, je ne veux pas que tu taches ma bagnole »    
+«  Met ça, je ne veux pas que tu tâches ma bagnole »    
 
 
 
