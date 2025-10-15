@@ -2,7 +2,7 @@
 
 *traduction : Boire*
 
-*trigger warning : Arachnopobie / pensée suicidaire / alcool*
+*trigger warning : Arachnopobie / pensée suicidaire / alcool / parasite *
 
 Je me voyais mal ne pas obéir. Gémissant de douleur, je mis les gants et je suivi le Cyclope. 
 
@@ -18,14 +18,14 @@ Je serais incapable de dire le temps que nous avions finalement roulé. Une tren
 
 « Allez, bouge-toi Taylor, on est arrivé, le portail va s’ouvrir »    
 
-Arrivé, je me demandais bien où. Au milieu de nulle part, des champs tristes partout, rendus encore plus déprimant dans la morne lumière de l’aube. Même pas quelques arbres, rien que des champs, de la boue et à quelques dizaines de pas de nous une grande grange en bois où je ne laisserais même pas dormir les rats qui venaient bouffer dans mes poubelles. Je me demandais comment il pouvait y avoir des gens pour vivre au milieu de toute cette morosité. Et, si c’était le cas, comment ils arrivaient à ne pas se pendre au bout de quelques jours.  Tout à coup, le truc qui me chiffonnait m’apparut clair et net. Je savais bien qu’un truc n’allait pas, si mon doigt n’avait pas été transformé en pâté pour chien,  j’aurais surement percuté plus tôt.    
+Arrivé, je me demandais bien où. Au milieu de nulle part, des champs tristes partout, rendus encore plus déprimant dans la morne lumière de l’aube. Même pas quelques arbres, rien que des champs, de la boue et à quelques dizaines de pas de nous une grande grande en bois où je ne laisserais même pas dormir les rats qui venaient bouffer dans mes poubelles. Je me demandais comment il pouvait y avoir des gens pour vivre au milieu de toute cette morosité. Et, si c’était le cas, comment ils arrivaient à ne pas se pendre au bout de quelques jours.  Tout à coup, le truc qui me chiffonnait m’apparut clair et net. Je savais bien qu’un truc n’allait pas, si mon doigt n’avait pas été transformé en pâté pour chien,  j’aurais surement percuté plus tôt.    
 
 « Saturion, quelque chose me chiffonne dans ton tissu de conneries. Et ce n’est pas seulement mon doigt, mais ça tu finiras par le payer. Non, tu dégobilles depuis tout à l’heure sur le Baron ton patron, qu’on va aller le rencontrer, qu’il existe vraiment. Mais un truc ne va pas. Il est impossible de prévoir où s’ouvrira un portail ouvert par une Tisse Passage dans la réalité d’arrivée. Et, même si ton boss est le roi des Tricoteurs, les Tisse Passage qu’il exploite doivent respecter les règles des Passages, comme toutes les autres Tisses Passages. »   
 
 J’avais a peine fini ma tirade, satisfait d’avoir trouvé le point qui réduisait à néant tout ce joli mensonge qu’il m’avait raconté, attendant qu’il se décide à me donner la vraie raison de tout cela, imaginant déjà ce que je pourrais faire pour me venger lorsque d’un coup la grande porte de la grande s’ouvrit, laissant apparaitre le flou irisé d’un portail.   
 
 Le flou se dissipa pour laisser la place à une vision, qui me fit frissonner. Saturion m’attrapa par l’épaule.    
-«  Décidément Taylor, tu es tellement à côté de la plaque, je me demande comment tu as pu survivre en étant autant à côté de tes pompes. Mais, tu verras, si tu arrives à rester en vie, le Baron, il possède assez de pouvoirs pour ne pas avoir à respecter les règles des réalités, en tout cas pas celle-la.    
+«  Décidément Taylor, tu es tellement à côté de la plaque, je me demande comment tu as pu survivre en étant autant à côté de tes pompes. Mais, tu verras, si tu arrives à rester en vie, le Baron, il possède assez de pouvoirs pour ne pas avoir à respecter les règles des réalités, en tout cas pas celle-la ».    
 
 
 Nous passâmes alors le portail tandis qu’il me poussait en avant d’une bourrade. Je m’affalais au sol, retenant un cri de douleur lorsque ma main blessée percuta le sol. Qui était … bizarrement mou et collant.    
@@ -75,7 +75,7 @@ Le monstre Hawkings se mit à rire. De cet ignoble rire chuintant et humide.
 
 Un Million. UN MILLION. Je n’en revenais pas. Pour autant d’argent je pouvais bien supporter une vision de l’enfer et perdre un doigt. J’en aurais presque souri.    
 
-Maintenant, avant de vous renvoyer avec votre prochaine mission, une dernière chose.   
+« Maintenant, avant de vous renvoyer avec votre prochaine mission, une dernière chose. »   
 
 Le baron fit un signe avec ses mains et des fils m’entourèrent, me ligotant étroitement. 
 «Qu’est ce que .. »    
