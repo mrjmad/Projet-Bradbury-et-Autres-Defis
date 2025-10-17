@@ -1,45 +1,45 @@
-# Trunk 
+# Trunk
 
 *Traduction : Tronc, Coffre*
 
 
-Apolline ne put s’empêcher de rire aux éclats en entendant le commentaire de sa cadette.   
+Apolline ne put s’empêcher de rire aux éclats en entendant le commentaire de sa cadette.  
 « Tu as tout à fait raison ma chérie. Toutefois, je vais avoir besoin que tu fasses quelque chose pour moi. Tu dois ailler prévenir tes sœurs et ton frère que vous allez devoir faire un voyage pour quelque temps. Ensuite tu pourras préparer ton sac avec ce que tu veux amener en voyage. Je viendrais m’occuper de tes habits, mais avec sa soeur vous pouvez remplir un sac à dos chacune de doudou, cahiers et livres. D’accord ? »  demanda très gentiment Apolline Pointigre.  
-« Artem il va encore me raller dessus Maman. Mais  je préviens Séléné et je vais Ényo à préparer son sac. Je peux amener mon coffre à jouet Maman ? S’illl te plaiiittttt, allez ????? »    
+« Artem il va encore me raller dessus Maman. Mais  je préviens Séléné et je vais aider Ényo à préparer son sac. Je peux amener mon coffre à jouet Maman ? S’illl te plaiiittttt, allez ????? »  
 
-« Non Mélinoé, pas de coffre à jouer. Par contre, tu peux prendre le plus grand de tes sacs à dos » répondit à souriant sa mère.   
+« Non Mélinoé, pas de coffre à jouer. Par contre, tu peux prendre le plus grand de tes sacs à dos » répondit à souriant sa mère.  
 
-Alors que la petite fille commençait déjà à partir en courant à toute vitesse, sa mère rajouta une dernière chose : « Et prévient Ényo qu’elle ne pourra pas apporter toutes ses armées de soldats, que quelque uns ! » .    
+Alors que la petite fille commençait déjà à partir en courant à toute vitesse, sa mère rajouta une dernière chose : « Et prévient Ényo qu’elle ne pourra pas apporter toutes ses armées de soldats, que quelque uns ! » .  
 
-« En voyage ? » interrogea Hazel. «  je ne comprends plus rien et tout cela à cause d’une bête araignée ? » continua-t-elle.     
+« En voyage ? » interrogea Hazel. «  je ne comprends plus rien et tout cela à cause d’une bête araignée ? » continua-t-elle.  
 
-«  Oui en voyage et tu vas devoir les accompagner Hazel » lui répondit doucement Apolline.    
-« C'est impossible Apolline. J’ai fait croire à mes amis que j’étais rentrée chez mes parents pendant ma maladie » Hazel mima des guillemets avec ses doigts en prononçant le mot maladie.     
-Elle continua « mais je suis censée retourner en cours la semaine prochaine. Je ne peux pas rater plus longtemps. Parce que cela va finir par me faire totalement foirer mon année et parce que mes amis vont finir par se poser des questions ».   Conclut-elle.    
+«  Oui en voyage et tu vas devoir les accompagner Hazel » lui répondit doucement Apolline.  
+« C'est impossible Apolline. J’ai fait croire à mes amis que j’étais rentrée chez mes parents pendant ma maladie » Hazel mima des guillemets avec ses doigts en prononçant le mot maladie.  
+Elle continua « mais je suis censée retourner en cours la semaine prochaine. Je ne peux pas rater plus longtemps. Parce que cela va finir par me faire totalement foirer mon année et parce que mes amis vont finir par se poser des questions ».   Conclut-elle.  
 
-« Il vaut mieux rater ses études qu’être morte » releva Néhal.    
-« Ha merci Néhal, merci, ça sert vraiment ce genre de commentaire » s’énerva légèrement la jeune femme.    
-« Et d’abord, c’est quoi cette araignée ? On dirait que vous avez vu le diable ? » ajouta-t-elle.    
+« Il vaut mieux rater ses études qu’être morte » releva Néhal.  
+« Ha merci Néhal, merci, ça sert vraiment ce genre de commentaire » s’énerva légèrement la jeune femme.  
+« Et d’abord, c’est quoi cette araignée ? On dirait que vous avez vu le diable ? » ajouta-t-elle.  
 
-« C’est malheureusement pire que cela. » Commença Apolline Pointigre.   
-« Nous t’avons parlé des tricoteurs. Parmi eux, il y en a un très spécial. Il est vieux, très vieux, peut-être plus que Néhal même. Il est puissant. C’est probablement le plus puissant des tricoteurs. Il est tellement puissant et depuis tellement longtemps que c’est presque devenu une légende. Un peu comme un croque-mitaine.  La moitié des personnes dotées de pouvoir ne doivent pas croire à son existence. » elle stoppa son récit, visiblement chamboulée.   
+« C’est malheureusement pire que cela. » Commença Apolline Pointigre.  
+« Nous t’avons parlé des tricoteurs. Parmi eux, il y en a un très spécial. Il est vieux, très vieux, peut-être plus que Néhal même. Il est puissant. C’est probablement le plus puissant des tricoteurs. Il est tellement puissant et depuis tellement longtemps que c’est presque devenu une légende. Un peu comme un croque-mitaine.  La moitié des personnes dotées de pouvoir ne doivent pas croire à son existence. » elle stoppa son récit, visiblement chamboulée.  
 «  J’ai besoin d’un verre »   ajouta-t-elle.  
 
-Elle se dirigea vers le gros globe terrestre en bois se trouvant dans l’un des coins de la pièce, l’ouvrit et se servit un double, plutôt un triple Whisky.    
+Elle se dirigea vers le gros globe terrestre en bois se trouvant dans l’un des coins de la pièce, l’ouvrit et se servit un double, plutôt un triple Whisky.  
 
-« Beaucoup doute de son existence mais il est bien là, tissant sa toile depuis des centaines d’années. Augmentant son pouvoir. Encore et encore ».    
+« Beaucoup doute de son existence mais il est bien là, tissant sa toile depuis des centaines d’années. Augmentant son pouvoir. Encore et encore ».  
 
 « Comme un méchant classique de Comics quoi » tenta Hazel. 
 
-« Tu peux en rire Hazel. Attends d’en savoir plus. Tu as déjà appris que les tricoteurs contraignent les Tisse Passages. Par la torture, la magie, en brisant leur âme ou en faisant en sorte qu’elle soit possédée par des esprits qui suivront leurs ordres. Le Baron Hawkings fait pire. Il les assimile. Il se les greffe »    
+« Tu peux en rire Hazel. Attends d’en savoir plus. Tu as déjà appris que les tricoteurs contraignent les Tisse Passages. Par la torture, la magie, en brisant leur âme ou en faisant en sorte qu’elle soit possédée par des esprits qui suivront leurs ordres. Le Baron Hawkings fait pire. Il les assimile. Il se les greffe »  
 
-« Il se les greffe ? Mais c’est un géant ? »  s’exclama Hazel.   
+« Il se les greffe ? Mais c’est un géant ? »  s’exclama Hazel.  
 
 «  Imagine une mygale géante. Imagine qu’au centre de l’abdomen de l’araignée pousse un buste humain. Voila à quoi ressemble le Baron. Et il s’est greffé les corps de cinq Tisse Passage sur l’abdomen. Voila à quoi ressemble cette abomination »  conclue Apolline. 
 
 Hazel peinait à ne pas frissonner en imaginant à quoi pouvait ressembler ce qui semblait être son ennemi ultime. 
 
-« Il y a encore autre chose qu’il faut lui raconter Apolline » ajouta doucement Néhal.    
+« Il y a encore autre chose qu’il faut lui raconter Apolline » ajouta doucement Néhal.  
 
 « Je sais, oui. J’allais y venir. Donc Hazel. Quand je t’ai dit que la dernière Tisse Passage connue française avait été kidnappé par un tricoteur, je t’ai dit la vérité. Mais pas toute la vérité. Cette Tisse Passage s’appelait Nefty et c’était la meilleure amie de ma grand-mère.  Et  le tricoteur qui s’en ait prise à elle c’était le Baron. Ensuite, pendant soixante-cinq ans, nos deux familles ont tout fait pour la secourir. Sans aucun résultat à part d’enterrer encore et encore ceux qui essayaient de la sauver. » Apolline arrêta son récit, les larmes aux yeux. Elle finit cul sec son verre, se reprit et continua. 
 
@@ -47,11 +47,11 @@ Hazel peinait à ne pas frissonner en imaginant à quoi pouvait ressembler ce qu
 
 Néhal pris la suite, tandis qu’Apolline pleurait doucement. 
 
-« Ils étaient en communication continue avec la base des opérations. C’est comme cela que nous avons pu avoir des images de l’horreur. Que nous avons pu comprendre comment le Baron s’appropriait les pouvoirs des Tisse-Passage. Quand les communications furent coupées, quand nos sorciers et nos sorcières ne purent détecter les esprits des sauveteurs nous dument nous résoudre à admettre que c’était fini pour eux. »   
+« Ils étaient en communication continue avec la base des opérations. C’est comme cela que nous avons pu avoir des images de l’horreur. Que nous avons pu comprendre comment le Baron s’appropriait les pouvoirs des Tisse-Passage. Quand les communications furent coupées, quand nos sorciers et nos sorcières ne purent détecter les esprits des sauveteurs nous dument nous résoudre à admettre que c’était fini pour eux. »  
 
 « Et les lâches du conseil n’ont rien voulu faire. Trop terrifier par les informations que nous leur ramenions »  Apolline s’était redressé, la rage au fond des yeux.  
 
-« Ils sont tous morts pour se dresser contre le monstre. Nos enfants sont orphelins. Ényo n’a jamais connu son père et Mélinoé ne s’en souvient quasiment plus non plus. Tout cela pour rien. Parce qu’ils ont tous trop peur. Parce qu’il est plus facile de croire que le Baron est un mythe. C’est plus rassurant pour eux ».   
+« Ils sont tous morts pour se dresser contre le monstre. Nos enfants sont orphelins. Ényo n’a jamais connu son père et Mélinoé ne s’en souvient quasiment plus non plus. Tout cela pour rien. Parce qu’ils ont tous trop peur. Parce qu’il est plus facile de croire que le Baron est un mythe. C’est plus rassurant pour eux ».  
 
 « Mais tu comprends pourquoi maintenant que nous savons qu’il est impliqué, nous devons en informer le conseil. » repris Néhal. 
 
@@ -59,7 +59,7 @@ Néhal pris la suite, tandis qu’Apolline pleurait doucement.
 
 « Très bien, je comprends pourquoi il faut protéger tes enfants Apolline, mais pourquoi je ne peux pas venir voir le conseil avec vous ? » demanda Hazel. 
 
-« Pour deux raisons, jeune fille. Premièrement, les membres du conseil sont des lâches. Terrorisé par le baron. Ils pourraient décider que la solution la simple pour éviter qu’il ne s’approprie une nouvelle Tisse-Passage cela serait de supprimer la Tisse-Passage. Surtout en considérant que tu ne sais pas réellement utiliser tes pouvoirs. »   
+« Pour deux raisons, jeune fille. Premièrement, les membres du conseil sont des lâches. Terrorisé par le baron. Ils pourraient décider que la solution la simple pour éviter qu’il ne s’approprie une nouvelle Tisse-Passage cela serait de supprimer la Tisse-Passage. Surtout en considérant que tu ne sais pas réellement utiliser tes pouvoirs. »  
 
 « Ils pourraient m’assassiner ? Mais, ce ne sont pas les gentils le conseil ? »  demanda abasourdie Hazel. 
 
@@ -88,19 +88,19 @@ Apolline mina un mot avec ses lèvres.
 « Allez, c’est comme si on était déjà de retour » répondit celle-ci. 
 
 
----- ----------
+---- 
 
 Il était étrange de se retrouver dans son appartement sans savoir quand elle y reviendrait. Elle ne pouvait pas dire qu’elle s’y était attaché. Trop petit, trop humide, trop vide, c’était simplement un appartement d’étudiante. Mais ne pas savoir quand elle reviendrait ni même si elle reviendrait un jour. Et si les choses se terminaient pas pour elle ? Si  elle finissait greffée sur le corps d’une araignée. Qu’est-ce qui se passerait ? Est-ce que ses parents devraient venir le vider eux même ? En pleurant leur fille disparue. Est-ce qu’ils penseraient qu’elle s’était enfuie ? Quelle avait voulu changer de vie ? 
 
-« Néhal ? »   
-« Oui Hazel ? Tu as besoin d’aide ? »   
-« Non. Mais si tout ce bordel finit mal… »   
-«  Ca n’arrivera pas Hazel, je te … »   
-«  Je ne pense pas que tu puisses finir cette phrase sans mentir Néhal, même pour me rassurer. Toutefois, je voudrais que tu me promettes d’aller voir mes parents. Je ne veux pas qu’ils pensent que je les ai abandonné. Pour je ne sais pas, partir devenir danseuse à Las Vegas. »   
-«  Je le ferrais. Tu as ma parole »   
-« Merci Néhal »   
+« Néhal ? »  
+« Oui Hazel ? Tu as besoin d’aide ? »  
+« Non. Mais si tout ce bordel finit mal… »  
+«  Ca n’arrivera pas Hazel, je te … »  
+«  Je ne pense pas que tu puisses finir cette phrase sans mentir Néhal, même pour me rassurer. Toutefois, je voudrais que tu me promettes d’aller voir mes parents. Je ne veux pas qu’ils pensent que je les ai abandonné. Pour je ne sais pas, partir devenir danseuse à Las Vegas. »  
+«  Je le ferrais. Tu as ma parole »  
+« Merci Néhal »  
 
----- -------------
+---- 
 
 « Vous voila enfin de retour, les enfants ont déjà traversé. Ohtar n’attends plus que toi Hazel »   leur lança Apolline pour les accueillir. 
 « Ohtar ? » demanda Hazel 
@@ -120,14 +120,14 @@ Il s’arrêta pour fixer Hazel.
 « Vous .. vous êtes un elfe ? »   ne pu s’empêcher de demander Hazel. 
 «  Je suis un Fey, comme ma mère » répondit-il. 
 
-« Et nous allons voir votre mère, Baie d’Or ? »   
-« C’est exact oui ».   
-«  Ne me dite pas que votre père s’appelle Tom Bombabil ? »   
+« Et nous allons voir votre mère, Baie d’Or ? »  
+« C’est exact oui ».  
+«  Ne me dite pas que votre père s’appelle Tom Bombabil ? »  
 « Non, effectivement pas. » 
 
 Apolline ne put s’empêcher de s’intégrer à la conversation. 
 
-« Baie d’or n’est pas son vrai prénom. Mais, tu auras le droit plus tard à un cours sur le pouvoir des noms. C’est une Fey. Elle est accro à tout ce qui touche à Tolkien. Elle a créé une auberge qui s’appelle la maison de Bombabil au fond de la Bretagne. La couverture parfaite pour une Fey, les fans de Tolkien qui viennent passer quelques nuits chez elle ne peuvent s’empêcher de la féliciter pour son costume d’elfe plus vrai que nature. »   
+« Baie d’or n’est pas son vrai prénom. Mais, tu auras le droit plus tard à un cours sur le pouvoir des noms. C’est une Fey. Elle est accro à tout ce qui touche à Tolkien. Elle a créé une auberge qui s’appelle la maison de Bombabil au fond de la Bretagne. La couverture parfaite pour une Fey, les fans de Tolkien qui viennent passer quelques nuits chez elle ne peuvent s’empêcher de la féliciter pour son costume d’elfe plus vrai que nature. »  
 
 « Ne vous moquez pas Dame Pointigre. Ma mère a trouvé une manière de se cacher en pleine lumière et en pleine forêt. » 
 
@@ -137,7 +137,7 @@ Apolline ne put s’empêcher de s’intégrer à la conversation.
 
 « Très bien Dame Pointigre. Bonne chance pour votre audition auprès du conseil ». 
 
-Ohtar salua d’une révérence Apolline et Néhal puis tendit la main à Hazel.   
+Ohtar salua d’une révérence Apolline et Néhal puis tendit la main à Hazel.  
 
 Qui regarda la main du jeune homme  … 
 
@@ -147,7 +147,7 @@ Qui regarda la main du jeune homme  …
 
 Hazel se sentit rougir. Clouant du regard la matriarche Pointigre, elle prit la main d’Othar. 
 
----- -------------
+---- 
 
 Le ciel était gris. Après tout c’était normal en Bretagne. Ils se trouvaient au bout d’un chemin, une grande grille en fer argenté leur ayant servi de porte de voyage.  
 
@@ -159,7 +159,7 @@ Elle ne put s’empêcher de lui jeter un coup d’oeil. Non il ne s’était pa
 
 Elle s'aperçut qu’elle lui tenait encore la main et la lâcha en rougissant. 
 
-« Très bien, allons-y alors, on dirait qu’il va pleuvoir »   
+« Très bien, allons-y alors, on dirait qu’il va pleuvoir »  
 
 Ohtar sourit « Nous sommes en Bretagne, il doit bien pleuvoir quatre ou cinq fois par jour » 
 

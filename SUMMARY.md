@@ -118,6 +118,7 @@
 	*  [12 Shredded ][106]
 	*  [13 Drink][107]
 	*  [14 Trunk][108]
+	*   [15 Ragged][109]
 	\* 
 
 [1]:	README.md
@@ -228,3 +229,4 @@
 [106]:	inktober/2025/Shredded.md
 [107]:	inktober/2025/Drink.md
 [108]:	inktober/2025/Trunk.md
+[109]:	inktober/2025/Ragged.md
