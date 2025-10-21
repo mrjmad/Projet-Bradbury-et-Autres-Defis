@@ -120,6 +120,7 @@
 	*  [14 Trunk][108]
 	*   [15 Ragged][109]
 	*  [16 Blunder][110]
+	* [17 Ornate][111]
 	\* 
 
 [1]:	README.md
@@ -232,3 +233,4 @@
 [108]:	inktober/2025/Trunk.md
 [109]:	inktober/2025/Ragged.md
 [110]:	inktober/2025/Blunder.md
+[111]:	inktober/2025/Ornate.md
