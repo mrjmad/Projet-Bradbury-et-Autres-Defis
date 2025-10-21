@@ -43,10 +43,10 @@ Les paparazzis étaient déjà là. Ça devait être un branle-bas de combat à 
 
 J’entrouvrais la portière de la voiture que j’avais « empruntée » pour l’occasion et déposait l’araignée au sol. Puis je lançais le sort. 
 
-Je me retrouvais catapulté dans la tête de l’arachnide. Ce n’était pas un sort de contrôle, c’était un sort de partage d’esprit. Voir par quatre paires d’yeux n’était pas ce qui allait arranger ma gueule de bois. Soupirant je commençais à tenter de guider mon petit drone biologique jusqu’à la maison. 
+Je me retrouvais catapulté dans la tête de l’arachnide. Ce n’était pas un sort de contrôle, c’était un sort de partage d’esprit. Voir par quatre paires d’yeux n’était pas ce qui allait arranger ma gueule de bois. Soupirant, je commençais à tenter de guider mon petit drone biologique jusqu’à la maison. 
 
 
-Il y en avait qui avait réellement la belle vie. J’avais réussi à me faufiler sans me faire écraser, écrabouiller ou dévorer. Pendant que je me demandais comment j’allais faire pour rentrer dans la maison, une femme, surement Apolline Pointigre était sortie furieuse de la maison. 
+Certains avaient réellement la belle vie. J’avais réussi à me faufiler sans me faire écraser, écrabouiller ou dévorer. Pendant que je me demandais comment j’allais faire pour rentrer dans la maison, une femme, surement Apolline Pointigre était sortie furieuse de la maison. 
 
 Décidément c’était presque trop facile. J’explorais la maison me cachant sous les meubles, dans les coins sombres. J’entendais même des sons. Moi qui pensais que les araignées étaient sourdes. 
 
@@ -56,9 +56,9 @@ Je finis pourtant par arriver à avoir une idée assez précise d’où se trouv
 
 Faisant les cents pas, bougeant les bras, se posant sur un bout de canapé pour se relever quelques secondes après et recommencer. 
 
-J’avais eu mon quota de déconvenue et de d’événement de merde. Et puis je ne m’appelais pas Peter Parker merde. Je ne comprenais pas vraiment comment guider l’araignée. 
+J’avais eu mon quota de déconvenue et de d’événement de merde. Et, puis je ne m’appelais pas Peter Parker merde. Je ne comprenais pas réellement comment guider l’araignée. 
 
-Je décidais de jouer le tout pour le tout et de faire monter mon petit insecte à huit pattes sur l’accoudoir du canapé. Elle s’était assis à la même place au moins trois fois en trois minutes à la même place, il suffisait d’attendre qu’elle s’y assoie de nouveau. 
+Je décidais de jouer le tout pour le tout et de faire monter mon petit insecte à huit pattes sur l’accoudoir du canapé. Elle s’était assise à la même place au moins trois fois en trois minutes. Il suffisait d’attendre qu’elle s’y assoie de nouveau. 
 
 
 ---- ---------
