@@ -121,6 +121,7 @@
 	*   [15 Ragged][109]
 	*  [16 Blunder][110]
 	* [17 Ornate][111]
+	*  [18 Deal][112]
 	\* 
 
 [1]:	README.md
@@ -234,3 +235,4 @@
 [109]:	inktober/2025/Ragged.md
 [110]:	inktober/2025/Blunder.md
 [111]:	inktober/2025/Ornate.md
+[112]:	inktober/2025/Deal.md

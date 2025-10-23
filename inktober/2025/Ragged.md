@@ -68,7 +68,7 @@ Apolline pris son temps pour dévisager chaque membre du conseil présent. Quatr
 
 « Tyrrel mon cher, voulez-vous bien laisser Dame Pointigre finir ses phrases ? » le repris la représentante Fey. 
 
-« Je n’oserais pas penser que le Conseil n’a pas détecté l’utilisation de son pouvoir. Mais l’important est que Néhal et moi savons qui est la Tisse-Passage et que nous avons garanti qu’elle soit en sécurité pour pouvoir apprendre à contrôler ses pouvoirs. 
+« Je n’oserais pas penser que le Conseil n’a pas détecté l’utilisation de son pouvoir. Mais l’important est que Néhal et moi savons qui est la Tisse-Passage et que nous avons fait le nécessaire pour qu’elle soit en sécurité pour pouvoir apprendre à contrôler ses pouvoirs. 
 
 «  Vous savez qui est la Tisse Passage ? Depuis quand ? » éructa Tyrell
 
@@ -107,7 +107,7 @@ Une voix désincarnée, froide et métallique se fit entendre dans l’esprit de
 
 Le vieil homme se retourna, fusillant du regard la présence fantomatique.    
 
-« C’est ce que je voulais dire, mais l’énervement du à la présentation d’une telle folie m’a fait perdre ma retenue. Nous allons bien entendu siéger et décider tous ensemble d’une décision à prendre. En attendant mesdames Pointigre, vous êtes bien sûr nos invitées. » finit-il.    
+« C’est ce que je voulais dire, mais l’énervement du à la présentation d’une telle folie m’a fait perdre ma retenue. Nous allons bien entendu siéger et décider tous ensemble d’une décision à prendre. En attendant mesdames Pointigre, vous êtes  nos invitées. » finit-il.    
 
 « Comment cela vos invitées ? C'est impossible, nous devons repartir au plus vite » réagit Apolline.   
 
