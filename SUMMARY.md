@@ -122,6 +122,7 @@
 	*  [16 Blunder][110]
 	* [17 Ornate][111]
 	*  [18 Deal][112]
+	*  [19 Artic][113]
 	\* 
 
 [1]:	README.md
@@ -236,3 +237,4 @@
 [110]:	inktober/2025/Blunder.md
 [111]:	inktober/2025/Ornate.md
 [112]:	inktober/2025/Deal.md
+[113]:	inktober/2025/Artic.md
