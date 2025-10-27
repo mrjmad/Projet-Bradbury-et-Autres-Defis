@@ -123,6 +123,7 @@
 	* [17 Ornate][111]
 	*  [18 Deal][112]
 	*  [19 Artic][113]
+	*  [20 Rivals ][114]
 	\* 
 
 [1]:	README.md
@@ -238,3 +239,4 @@
 [111]:	inktober/2025/Ornate.md
 [112]:	inktober/2025/Deal.md
 [113]:	inktober/2025/Artic.md
+[114]:	inktober/2025/Rivals.md
