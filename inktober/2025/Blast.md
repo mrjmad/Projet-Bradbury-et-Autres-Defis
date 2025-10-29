@@ -2,7 +2,7 @@
 
 *Traduction : Explosion, détruire*
 
-« Dos de libellule géante ?? Vous vous moquez de moi ? » s’exclama Hazel. 
+« Dos de libellule géante ?? Vous vous moquez de moi ? » s’exclama Hazel.   
 « Absolument pas, elles viennent d’une autre réalité, une amie en élève plusieurs, dans les vallées abandonnées du find fond de la Creuse. Elle sera là dans quelques heures et nous pourrons partir » lui répondit Baie d’or.     
 « Et nous allons voler jusqu’au pôle Nord ? »    
 «  Le trajet est trop long d’une seule traite, il faudra s’arrêter en Irlande pour la nuit , mais oui nous serons en Arctique demain dans l’après midi »    
