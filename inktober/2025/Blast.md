@@ -16,22 +16,22 @@
 « Allez s’illl te plaiittttttttt »la petite fille serra ses deux mains sous son menton, regardant Hazel et Baie d’or avec de grands yeux tout humides et suppliants.    
 « Je serais sageeeeeeee, promis et j’écouterais toutttttttt » continua-t-elle.    
 
-Baie d’or se mit à rire de bon cœur « Très bien petite guerrière, tu nous accompagneras, mais si jamais tu n’écoutes pas ce que l’on te dit, je t’attache sur le dos d’une libellule et tu y resteras jusqu’à notre retour.   
+Baie d’or se mit à rire de bon cœur « Très bien petite guerrière, tu nous accompagneras, mais si jamais tu n’écoutes pas ce que l’on te dit, je t’attache sur le dos d’une libellule et tu y resteras jusqu’à notre retour.    
 
-Mélinoée acquiesça vigoureusement « Promis »  
+Mélinoée acquiesça vigoureusement « Promis »   
 
-« Alors il ne reste plus qu’à préparer vos sacs pour le voyage, je vais vous prêter des vêtements qui vous permettront de résister au froid aussi bien du voyage et que sur place à notre arrivée »  
+« Alors il ne reste plus qu’à préparer vos sacs pour le voyage, je vais vous prêter des vêtements qui vous permettront de résister au froid aussi bien du voyage et que sur place à notre arrivée »   
 
-Quelques heures plus tard, les libellules arrivèrent. Trois grande libellules majestueuses se posèrent en vrombissant face à la maison.   
+Quelques heures plus tard, les libellules arrivèrent. Trois grande libellules majestueuses se posèrent en vrombissant face à la maison.    
 
 Deux des trois libellules accueillent des pilotes installés sur leur dos. Une fois les insecte géant posés, les pilotes sautent à terre et se dirigent vers la maison. 
 
-Baie d’or se porte à leur rencontre et serra l’une des deux pilotes dans ses bras.« Bharamari merci d’être venu si vite. tu es venue avec Diane ? » 
-« Tes explications étaient succinctes mon amie, je me suis dit que Diane serait peut-être utile » répondit Bharamari tandis que la seconde, Diane donc, s’inclinait légèrement tout en libérant ses dreadlocks de la bande de cuir qui les maintenaient en un long catogan lors des vols de libellule. 
-«Ce n’est pas une mauvaise idée, je serais plus tranquille en sachant que ta fille protège la maison avec Tom » répondit Baie d’or.
+Baie d’or se porte à leur rencontre et serra l’une des deux pilotes dans ses bras.   « Bharamari merci d’être venu si vite. tu es venue avec Diane ? »   
+« Tes explications étaient succinctes mon amie, je me suis dit que Diane serait peut-être utile » répondit Bharamari tandis que la seconde, Diane donc, s’inclinait légèrement tout en libérant ses dreadlocks de la bande de cuir qui les maintenaient en un long catogan lors des vols de libellule.    
+«Ce n’est pas une mauvaise idée, je serais plus tranquille en sachant que ta fille protège la maison avec Tom » répondit Baie d’or.   
 « Si cela vous convient, je vous propose de vous restaurer. je vous expliquerais la situation et nous pourrons ensuite partir » continua-t-elle.    
 
-La grande table de bois débordait de tentations sucrées. Brioche, viennoiserie, pâte de fruit, gâteau, pancake, confiture et sirop d’étable, fruit confit ou sec. Il y avait de quoi faire une orgie de sucre ou donner des cauchemars à un dentiste.   
+La grande table de bois débordait de tentations sucrées. Brioche, viennoiserie, pâte de fruit, gâteau, pancake, confiture et sirop d’étable, fruit confit ou sec. Il y avait de quoi faire une orgie de sucre ou donner des cauchemars à un dentiste.    
 
 Pendant que les plus jeunes s’en donnaient à cœur joie, Baie d’or expliquait rapidement la situation aux deux nouvelles arrivantes.    
 
