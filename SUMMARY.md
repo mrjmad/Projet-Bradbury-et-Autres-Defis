@@ -124,6 +124,7 @@
 	*  [18 Deal][112]
 	*  [19 Artic][113]
 	*  [20 Rivals ][114]
+	*  [21 Blast][115]
 	\* 
 
 [1]:	README.md
@@ -240,3 +241,4 @@
 [112]:	inktober/2025/Deal.md
 [113]:	inktober/2025/Artic.md
 [114]:	inktober/2025/Rivals.md
+[115]:	inktober/2025/Blast.md
